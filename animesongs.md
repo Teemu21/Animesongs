@@ -28,6 +28,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ark](https://www.youtube.com/watch?v=5ACZhp5YuSc)
 2. [From The Seeds](https://www.youtube.com/watch?v=L1WjHCXrSK8)
 
+## 86:
+
+1. [3 min 29 sec](https://www.youtube.com/watch?v=3BIfNwhMDh8)
+2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
