@@ -19,4 +19,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Your Legacy](https://www.youtube.com/watch?v=f0WPQICEclg)
 4. [Memory](https://www.youtube.com/watch?v=E4Wbk4ACIEM)
 
+### .hack//Roots:
+
+1. [Silly-Go-Round](https://www.youtube.com/watch?v=GzGWvvYOqK4)
+
  
