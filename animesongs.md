@@ -38,4 +38,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
 2. [Baddest](https://www.youtube.com/watch?v=rNGNU7Cvh5Y)
 
+## Mobile Suit Gundam:
+
+### Mobile Suit Gundam: After War Gundam X:
+
+1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
+2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
+
  
