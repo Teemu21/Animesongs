@@ -33,6 +33,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [3 min 29 sec](https://www.youtube.com/watch?v=3BIfNwhMDh8)
 2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
 
+## Ajin:
+
+1. [Can You Sleep At Night?](https://www.youtube.com/watch?v=Ppl21c_zKo8)
+2. [Insisting That I'm Me](https://www.youtube.com/watch?v=-QLU453h4Po)
+3. [The End Of Escape](https://www.youtube.com/watch?v=FKAdmgB--Yk)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
