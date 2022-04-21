@@ -39,6 +39,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Insisting That I'm Me](https://www.youtube.com/watch?v=-QLU453h4Po)
 3. [The End Of Escape](https://www.youtube.com/watch?v=FKAdmgB--Yk)
 
+## Akame ga Kill:
+
+1. [Skyreach](https://www.youtube.com/watch?v=vqshxf8WiHE)
+2. [Liar Mask](https://www.youtube.com/watch?v=IzhGVssPtgE)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
