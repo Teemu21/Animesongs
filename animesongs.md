@@ -87,4 +87,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
 2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
 
- 
+## The Heroic Legend of Arslan:
+
+2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
+3. [Wings](https://www.youtube.com/watch?v=X708ByP_7yI) 
