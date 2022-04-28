@@ -60,6 +60,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
 
+## Blue Exorcist:
+
+1. [Core Pride](https://www.youtube.com/watch?v=fSks0H1wcqc)
+2. [In My World](https://www.youtube.com/watch?v=BULeNYMVn_s)
+3. [A Drop of Influence](https://www.youtube.com/watch?v=8CTgP87aWmM)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
