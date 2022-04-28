@@ -65,6 +65,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Flare](https://www.youtube.com/watch?v=zrJ4hqF_Evg)
 2. [Daylight](https://www.youtube.com/watch?v=i4J_aRQ21Bo)
 
+## AWOL:
+
+1. [Rocket Dive](https://www.youtube.com/watch?v=-qoVeoG8XuU)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
