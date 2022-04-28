@@ -56,6 +56,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Blue Bookmark](https://www.youtube.com/watch?v=8H9z5ZuGmBw)
 
+## Assassination Classroom:
+
+3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
