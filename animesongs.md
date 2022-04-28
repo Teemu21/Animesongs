@@ -60,6 +60,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
 
+## Blue Comet SPT Layzner:
+
+1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
+
 ## Blue Exorcist:
 
 1. [Core Pride](https://www.youtube.com/watch?v=fSks0H1wcqc)
