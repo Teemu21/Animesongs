@@ -73,6 +73,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cloudier Sky](https://www.youtube.com/watch?v=BkXD8DJfr5k)
 
+## Azur Lane:
+
+1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
