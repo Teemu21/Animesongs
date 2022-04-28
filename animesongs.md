@@ -93,9 +93,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Code Geass:
 
-1. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)
+1.\ [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)
 2. [Impossible to Decipher](https://www.youtube.com/watch?v=tNDR1XOW-7k)
-3. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)\
+3. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)
 5. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
 
 
