@@ -48,6 +48,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Heavenly Blue](https://www.youtube.com/watch?v=kjiBFUbSMEI)
 
+## Angel Beats!:
+
+1. [My Soul, Your Beats!](https://www.youtube.com/watch?v=zIFV8UUs1-c)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
