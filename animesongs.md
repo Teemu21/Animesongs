@@ -60,6 +60,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
 
+## Arifureta: From Commonplace to World's Strongest:
+
+1. [Flare](https://www.youtube.com/watch?v=zrJ4hqF_Evg)
+2. [Daylight](https://www.youtube.com/watch?v=i4J_aRQ21Bo)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
