@@ -255,6 +255,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
 4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
 
+## Neon Genesis Evangelion:
+
+1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=z-wpXShTUfY)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
