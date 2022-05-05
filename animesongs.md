@@ -114,6 +114,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Fate:
 
+### Fate Zero:
+
+1. [Oath Sign](https://www.youtube.com/watch?v=0VnvdO3WJnU)
+
 ### Fate/Stay Night:
 
 1. [Disillusion](https://www.youtube.com/watch?v=I4poryDakX0)
