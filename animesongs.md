@@ -259,6 +259,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=z-wpXShTUfY)
 
+## Night Head 2041:
+
+1. [Icy Ivy](https://www.youtube.com/watch?v=5UDXhHrhRRk) 
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
