@@ -135,7 +135,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Leijiverse:
 
-## Gun Frontier:
+### Gun Frontier:
 
 1. [Style](https://www.youtube.com/watch?v=ieym8Ifhq3Y)
 
@@ -154,6 +154,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
 2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
+
+### Mobile Suit Gundam: Reconguista in G:
+
+1. [Blazing](https://www.youtube.com/watch?v=EQD8jSjWvQc)
 
 ## Monogatari Series:
 
