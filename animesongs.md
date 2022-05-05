@@ -172,6 +172,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Mobile Suit Gundam:
 
+### Mobile Suit Gundam 0083: Stardust Memory:
+
+1. [The Winner](https://www.youtube.com/watch?v=eP0U3irjIow)
+2. [Men Of Destiny](https://www.youtube.com/watch?v=3oQZszjvVFY)
+
 ### Mobile Suit Gundam: Reconguista in G:
 
 1. [Blazing](https://www.youtube.com/watch?v=EQD8jSjWvQc)
