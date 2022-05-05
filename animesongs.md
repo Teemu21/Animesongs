@@ -186,6 +186,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
 2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
 
+## Mobile Suit Gundam: Seed:
+
+1. [Invoke](https://www.youtube.com/watch?v=MhtKS45ANAs)
+2. [Moment](https://www.youtube.com/watch?v=nNGWrmbvrW4)
+3. [Believe](https://www.youtube.com/watch?v=Vy-Li-lZTCE)
+4. [Realize](https://www.youtube.com/watch?v=vGLoaXD3sNE)
+
 ### Mobile Suit Gundam: 00:
 
 1. [Daybreak's Bell](https://www.youtube.com/watch?v=_lHVhXq8Xkw)
