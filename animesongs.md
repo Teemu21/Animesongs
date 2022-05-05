@@ -133,6 +133,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
 2. [Baddest](https://www.youtube.com/watch?v=rNGNU7Cvh5Y)
 
+## King's Raid: Successors of the Will:
+
+1. [Legendary Future](https://www.youtube.com/watch?v=ZgSiueFZlB4)
+2. [Eclipse](https://www.youtube.com/watch?v=VAv8TCFeXAI)
+
 ## Last Hope:
 
 1. [Sirius](https://www.youtube.com/watch?v=_CKbNJkcwe0)
