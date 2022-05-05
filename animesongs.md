@@ -98,6 +98,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
 5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
 
+## Death Note:
+
+1. [The World](https://www.youtube.com/watch?v=RvIx-SJvlNY)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
