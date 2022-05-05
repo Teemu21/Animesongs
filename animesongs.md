@@ -148,6 +148,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Galaxy Railways in Spring (my own translation)](https://www.youtube.com/watch?v=VtxdNd9lIMQ)
 2. [Carry The Light](https://www.youtube.com/watch?v=TKh1VuMBEf0)
 
+## Last Hope:
+
+1. [Sirius](https://www.youtube.com/watch?v=_CKbNJkcwe0)
+
 ## Mobile Suit Gundam:
 
 ### Mobile Suit Gundam: Reconguista in G:
