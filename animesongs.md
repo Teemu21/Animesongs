@@ -186,12 +186,18 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
 2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
 
-## Mobile Suit Gundam: Seed:
+### Mobile Suit Gundam: Seed:
 
 1. [Invoke](https://www.youtube.com/watch?v=MhtKS45ANAs)
 2. [Moment](https://www.youtube.com/watch?v=nNGWrmbvrW4)
 3. [Believe](https://www.youtube.com/watch?v=Vy-Li-lZTCE)
 4. [Realize](https://www.youtube.com/watch?v=vGLoaXD3sNE)
+
+### Mobile Suit Gundam: Seed Destiny:
+
+1. [Ignited](https://www.youtube.com/watch?v=NYbxYmdG1yc)
+2. [Pride](https://www.youtube.com/watch?v=kbLbqQpBEwk)
+3. [Our Whereabouts](https://www.youtube.com/watch?v=eH_ZMA37TpQ)
 
 ### Mobile Suit Gundam: 00:
 
