@@ -77,6 +77,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
 
+## Battle Game in 5 Seconds:
+
+1. [No Continue](https://www.youtube.com/watch?v=sCJVFAZ2hL8)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
