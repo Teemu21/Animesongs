@@ -177,6 +177,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [The Winner](https://www.youtube.com/watch?v=eP0U3irjIow)
 2. [Men Of Destiny](https://www.youtube.com/watch?v=3oQZszjvVFY)
 
+### Mobile Suit Gundam ZZ:
+
+1. [It's Not Anime](https://www.youtube.com/watch?v=K9H9xPFP5-M)
+2. [Silent Voice](https://www.youtube.com/watch?v=k6I-85Yuw_8)
+
 ### Mobile Suit Gundam: Reconguista in G:
 
 1. [Blazing](https://www.youtube.com/watch?v=EQD8jSjWvQc)
