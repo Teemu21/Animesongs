@@ -237,6 +237,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Monogatari Series:
 
+### Nekomonogatari Black:
+
+1. [Perfect Slumbers](https://www.youtube.com/watch?v=QkipWXIcb-o)
+
 ### Bakemonogatari:
 
 1. [Staple Stable](https://www.youtube.com/watch?v=4BFuamh-l14)
