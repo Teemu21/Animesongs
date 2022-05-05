@@ -245,6 +245,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 4. [Ren’ai Circulation](https://www.youtube.com/watch?v=P4mhbumb_xk)
 5. [Sugar Sweet Nightmare](https://www.youtube.com/watch?v=5aOLQQ9kPdk)
 
+### Monogatari Series Season 2:
+
+1\. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)<br>
+2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
+4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
