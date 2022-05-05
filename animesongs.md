@@ -138,6 +138,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Legendary Future](https://www.youtube.com/watch?v=ZgSiueFZlB4)
 2. [Eclipse](https://www.youtube.com/watch?v=VAv8TCFeXAI)
 
+## Kuromukuro:
+
+1. [Deathtopia](https://www.youtube.com/watch?v=0PI4C-xRs8M)
+2. [Accelerated Destiny (my own translation)](https://www.youtube.com/watch?v=NlR1ytMY7rA)
+
 ## Last Hope:
 
 1. [Sirius](https://www.youtube.com/watch?v=_CKbNJkcwe0)
