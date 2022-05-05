@@ -112,6 +112,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Butterfly (All Cast)](https://www.youtube.com/watch?v=tSLDC75BEpQ)
 3. [Brave Heart](https://www.youtube.com/watch?v=r0E90DgZdqU)
 
+## Fate:
+
+### Fate/Stay Night:
+
+1. [Disillusion](https://www.youtube.com/watch?v=I4poryDakX0)
+2. [The Glittering Tears Sent to the Stars](https://www.youtube.com/watch?v=luUZHAkoGRs)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
