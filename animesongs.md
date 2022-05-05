@@ -135,6 +135,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Leijiverse:
 
+## Gun Frontier:
+
+1. [Style](https://www.youtube.com/watch?v=ieym8Ifhq3Y)
+
 ### Galaxy Express 999:
 
 1. [Galaxy Express 999](https://www.youtube.com/watch?v=AUVVfsNIseg)
