@@ -249,6 +249,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 4. [Ren’ai Circulation](https://www.youtube.com/watch?v=P4mhbumb_xk)
 5. [Sugar Sweet Nightmare](https://www.youtube.com/watch?v=5aOLQQ9kPdk)
 
+### Nisemonogatari:
+
+1. [Favorite Phrase](https://www.youtube.com/watch?v=t55_9fHcJx8)
+2. [Marshmallow Justice](https://www.youtube.com/watch?v=DOF_GkqMYTw)
+3. [Platinum Disco](https://www.youtube.com/watch?v=14FOPsSCIPs)
+
 ### Monogatari Series Season 2:
 
 1\. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)<br>
