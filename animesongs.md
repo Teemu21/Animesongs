@@ -181,6 +181,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [The Winner](https://www.youtube.com/watch?v=eP0U3irjIow)
 2. [Men Of Destiny](https://www.youtube.com/watch?v=3oQZszjvVFY)
 
+### Mobile Suit Zeta Gundam:
+
+1. [Zeta-Transcending Times](https://www.youtube.com/watch?v=nivpOO5YXcA)
+2. [Towards The Aqueous Star With Love](https://www.youtube.com/watch?v=t1fTBfaztdw)
+
 ### Mobile Suit Gundam ZZ:
 
 1. [It's Not Anime](https://www.youtube.com/watch?v=K9H9xPFP5-M)
