@@ -186,6 +186,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [It's Not Anime](https://www.youtube.com/watch?v=K9H9xPFP5-M)
 2. [Silent Voice](https://www.youtube.com/watch?v=k6I-85Yuw_8)
 
+### Mobile Suit Victory Gundam:
+
+1. [Stand Up To The Victory](https://www.youtube.com/watch?v=lLIkF1_20fY)
+2. [Don't Stop, Carry On!](https://www.youtube.com/watch?v=bjq8Zi_RFJQ)
+
 ### Mobile Suit Gundam: Reconguista in G:
 
 1. [Blazing](https://www.youtube.com/watch?v=EQD8jSjWvQc)
