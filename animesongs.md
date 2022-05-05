@@ -216,6 +216,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=QOtdXP90m9U)
 4. [Past The Tears](https://www.youtube.com/watch?v=cEkCFEBWND8)
 
+### Mobile Suit Gundam: Iron-Blooded Orphans:
+
+3. [Rage Of Dust](https://www.youtube.com/watch?v=DVfVn0r9848)
+4. [Fighter](https://www.youtube.com/watch?v=a-3iraTC2R0) 
+
 ## Monogatari Series:
 
 ### Bakemonogatari:
