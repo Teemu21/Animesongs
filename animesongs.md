@@ -261,6 +261,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
 4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
 
+### Hanamonogatari:
+
+1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
+
 ## Neon Genesis Evangelion:
 
 1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=z-wpXShTUfY)
