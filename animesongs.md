@@ -278,6 +278,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Icy Ivy](https://www.youtube.com/watch?v=5UDXhHrhRRk) 
 
+## Seraph of the End:
+
+1. [X.U.](https://www.youtube.com/watch?v=yHUnr2ulyu0)
+2. [Two Souls - Toward The Truth](https://www.youtube.com/watch?v=BJ2VFg6L1hA)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
