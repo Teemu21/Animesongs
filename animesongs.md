@@ -170,6 +170,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Galaxy Express 999](https://www.youtube.com/watch?v=AUVVfsNIseg)
 
+### Queen Emeraldas:
+
+1. [Queen Emeraldas](https://www.youtube.com/watch?v=czHCeVbDoB8)
+
 ### The Galaxy Railways:
 
 1. [Galaxy Railways in Spring (my own translation)](https://www.youtube.com/watch?v=VtxdNd9lIMQ)
