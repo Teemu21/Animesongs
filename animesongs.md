@@ -272,6 +272,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Mathemagics](https://www.youtube.com/watch?v=F_Cr9vZ08Ws)
 3. [Evening Shower Equation](https://www.youtube.com/watch?v=aoV0PKHdWXw)
 
+### Owarimonogatari Season 2:
+
+1. [Terminal Terminal](https://www.youtube.com/watch?v=s37On15RkAI)
+2. [Dreamy Date Drive](https://www.youtube.com/watch?v=46azVyIDoAY)
+3. [Dark Cherry Mystery](https://www.youtube.com/watch?v=_XdwYtDT910)
+
 ### Hanamonogatari:
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
