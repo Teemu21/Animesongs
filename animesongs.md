@@ -266,6 +266,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
 4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
 
+### Owarimonogatari:
+
+1. [Decent Black](https://www.youtube.com/watch?v=ieggkmdxa5s)
+2. [Mathemagics](https://www.youtube.com/watch?v=F_Cr9vZ08Ws)
+3. [Evening Shower Equation](https://www.youtube.com/watch?v=aoV0PKHdWXw)
+
 ### Hanamonogatari:
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
