@@ -166,6 +166,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Style](https://www.youtube.com/watch?v=ieym8Ifhq3Y)
 
+### Queen Millennia:
+
+1. [Cosmos Dream](https://www.youtube.com/watch?v=Y5_ZHdI4mek)
+
 ### Galaxy Express 999:
 
 1. [Galaxy Express 999](https://www.youtube.com/watch?v=AUVVfsNIseg)
