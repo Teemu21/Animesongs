@@ -240,7 +240,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Daybreak's Bell](https://www.youtube.com/watch?v=_lHVhXq8Xkw)
 2. [Ash Like Snow](https://www.youtube.com/watch?v=VVhBoPPbgvY)
-3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=QOtdXP90m9U)
+3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=g73s3r6CAto)
 4. [Past The Tears](https://www.youtube.com/watch?v=cEkCFEBWND8)
 
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
