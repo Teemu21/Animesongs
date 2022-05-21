@@ -319,6 +319,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 2. [Resister](https://www.youtube.com/watch?v=Tn1Qg3FCpgw)
 
+### Sword Art Online Alicization - War of the Underworld:
+
+1. [Resolution](https://www.youtube.com/watch?v=nUtgOwCh2uY)
+2. [Anima](https://www.youtube.com/watch?v=8ySmJPITz4k)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
