@@ -315,6 +315,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ignite](https://www.youtube.com/watch?v=R30GTQTwzcM)
 2. [Courage](https://www.youtube.com/watch?v=QizqLqGLork)
 
+### Sword Art Online Alicization:
+
+2. [Resister](https://www.youtube.com/watch?v=Tn1Qg3FCpgw)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
