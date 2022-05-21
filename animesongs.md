@@ -303,6 +303,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [X.U.](https://www.youtube.com/watch?v=yHUnr2ulyu0)
 2. [Two Souls - Toward The Truth](https://www.youtube.com/watch?v=BJ2VFg6L1hA)
 
+## Sword Art Online:
+
+### Sword Art Online I:
+
+1. [Crossing Field](https://www.youtube.com/watch?v=8t02G-FZaBs)
+2. [Innocence](https://www.youtube.com/watch?v=8bGqopFdVqc)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
