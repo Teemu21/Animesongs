@@ -187,7 +187,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Mobile Suit Gundam: The 08th MS Team:
 
-1. [Shine In The Storm](https://www.youtube.com/watch?v=lPwYZGmk5QI) 
+1. [Shine In The Storm](https://www.youtube.com/watch?v=kJyI3YBZ9lw) 
 
 ### Mobile Suit Gundam 0083: Stardust Memory:
 
