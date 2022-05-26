@@ -33,6 +33,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [3 min 29 sec](https://www.youtube.com/watch?v=3BIfNwhMDh8)
 2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
 
+## A Certain-Series:
+
+### A Certain Scientific Accelerator:
+
+1. [Shadow Is The Light](https://www.youtube.com/watch?v=Nks8l4zywKI)
+
 ## Ajin:
 
 1. [Can You Sleep At Night?](https://www.youtube.com/watch?v=Ppl21c_zKo8)
