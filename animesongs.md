@@ -198,6 +198,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cosmos Dream](https://www.youtube.com/watch?v=Y5_ZHdI4mek)
 
+### Arcadia of My Youth: Endless Orbit SSX:
+
+1. [We're Setting Sail](https://www.youtube.com/watch?v=SXO4zok_0vY)
+
 ### Space Pirate Captain Harlock:
 
 1. [Captain Harlock](https://www.youtube.com/watch?v=elYmaHanT_w)
