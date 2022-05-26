@@ -35,6 +35,15 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## A Certain-Series:
 
+### A Certain Magical Index:
+
+1. [PSI-Missing](https://www.youtube.com/watch?v=etCH7Mnt0Wg)
+2. [Masterpiece](https://www.youtube.com/watch?v=xT6g5DmVG-0)
+3. [No Buts!](https://www.youtube.com/watch?v=wpUq5P9EDT4)
+4. [See VisionS](https://www.youtube.com/watch?v=CxrGfbZBGTY)
+5. [Gravitation](https://www.youtube.com/watch?v=eo_JfVJEFLo)
+6. [Roar](https://www.youtube.com/watch?v=STUTLhWSUY4)
+
 ### A Certain Scientific Railgun:
 
 1. [Only My Railgun](https://www.youtube.com/watch?v=I6pchuE2nzg)
