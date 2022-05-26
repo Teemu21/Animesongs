@@ -198,6 +198,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cosmos Dream](https://www.youtube.com/watch?v=Y5_ZHdI4mek)
 
+### Space Pirate Captain Harlock:
+
+1. [Captain Harlock](https://www.youtube.com/watch?v=elYmaHanT_w)
+
 ### Galaxy Express 999:
 
 1. [Galaxy Express 999](https://www.youtube.com/watch?v=AUVVfsNIseg)
