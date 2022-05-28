@@ -113,7 +113,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 2\. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)<br>
 3\. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)<br>
-5\. [Only You ~Bonds With You~](https://www.youtube.com/watch?v=yYJCxmBdAqM)
+5\. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
 
 ## Blue Comet SPT Layzner:
 
