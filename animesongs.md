@@ -115,6 +115,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3\. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)<br>
 5\. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
 
+## Berserk:
+
+### Berserk 1997:
+
+1. [Tell Me Why](https://www.youtube.com/watch?v=I2rV8oKWSdM) 
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
