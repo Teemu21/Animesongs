@@ -121,6 +121,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Tell Me Why](https://www.youtube.com/watch?v=I2rV8oKWSdM) 
 
+### Berserk 2016/17:
+
+1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
+2. [Sacrifice](https://www.youtube.com/watch?v=4QzYxyFZu5Y)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
