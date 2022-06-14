@@ -177,6 +177,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ideal White](https://www.youtube.com/watch?v=d7nl_pS4iEA)
 2. [Brave Shine](https://www.youtube.com/watch?v=qPbA0mMGsSg)
 
+## Good Luck Girl
+
+1. [Make My Day!](https://www.youtube.com/watch?v=GpzcLVqNXXc)
+
 ## High-Rise Invasion:
 
 1. [Instinct](https://www.youtube.com/watch?v=GxgsSYqF9-8)
