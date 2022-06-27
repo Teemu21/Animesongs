@@ -75,6 +75,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## AMAIM Warrior at the Borderline:
 
 1. [Enemy](https://www.youtube.com/watch?v=KEJIc-wvecg)
+2. [Overload](https://www.youtube.com/watch?v=0togaduimw8)
 
 ## Angel Beats!:
 
@@ -229,7 +230,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Galaxy Express 999:
 
-1. [Galaxy Express 999](https://www.youtube.com/watch?v=AUVVfsNIseg)
+1. [Galaxy Express 999](https://www.youtube.com/watch?v=x6y9Ql_LhK4)
 
 ### Queen Emeraldas:
 
