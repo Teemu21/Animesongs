@@ -293,6 +293,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ignited](https://www.youtube.com/watch?v=NYbxYmdG1yc)
 2. [Pride](https://www.youtube.com/watch?v=kbLbqQpBEwk)
 3. [Our Whereabouts](https://www.youtube.com/watch?v=eH_ZMA37TpQ)
+4. [Vestige](https://www.youtube.com/watch?v=2tzTqt3hAhk)
 
 ### Mobile Suit Gundam: 00:
 
