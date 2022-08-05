@@ -159,7 +159,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Digimon Tri Movies:
 
 1. [Butterfly (Koji Wada)](https://www.youtube.com/watch?v=e-04i20RV_s)
-2. [Butterfly (All Cast)](https://www.youtube.com/watch?v=y7orM0znCsk)
+2. [Butterfly (All Cast)](https://www.youtube.com/watch?v=Q04iqoRYMcQ)
 3. [Brave Heart](https://www.youtube.com/watch?v=r0E90DgZdqU)
 
 ## Fate:
@@ -370,8 +370,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Sword Art Online I:
 
-1. [Crossing Field](https://www.youtube.com/watch?v=8t02G-FZaBs)
-2. [Innocence](https://www.youtube.com/watch?v=8bGqopFdVqc)
+1. [Crossing Field](https://www.youtube.com/watch?v=e3vsQZbgz_Y)
+2. [Innocence](https://www.youtube.com/watch?v=Sd7xZ2SdyQk)
 
 ### Sword Art Online II:
 
