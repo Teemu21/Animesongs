@@ -127,6 +127,22 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
 2. [Sacrifice](https://www.youtube.com/watch?v=1nP5q2OQolk)
 
+## Black Clover:
+
+1. [Faraway Future](https://www.youtube.com/watch?v=75rCnz7_whs) 
+2. [Paint It Black](https://www.youtube.com/watch?v=vjDg8hh_F7c)
+3. [Black Rover](https://www.youtube.com/watch?v=Lcg871eYKfY)
+4. [Guess Who Is Back](https://www.youtube.com/watch?v=6InvxaiMpa4)
+5. [Reckless](https://www.youtube.com/watch?v=TciQvQFTzHo)
+6. [Graffiti Page](https://www.youtube.com/watch?v=s_ztwVMEns8)
+7. [Just A Dice](https://www.youtube.com/watch?v=Eyfne13djNs)
+8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
+9. [Right Now](https://www.youtube.com/watch?v=d1hJeBpKn2Y)
+10. [Black Catcher](https://www.youtube.com/watch?v=G40CNmGPwjI) 
+11. [Stories](https://www.youtube.com/watch?v=Npq6nXAqx_I)
+12. [Everlasting Shine](https://www.youtube.com/watch?v=Ty5xZsfkxqU)
+13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
