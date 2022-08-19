@@ -23,6 +23,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Silly-Go-Round](https://www.youtube.com/watch?v=GzGWvvYOqK4)
 
+## 07-Ghost:
+
+1. [Fragments Of Scarlet](https://www.youtube.com/watch?v=OINW8ObizhY)
+
 ## 7 Seeds:
 
 1. [Ark](https://www.youtube.com/watch?v=5ACZhp5YuSc)
