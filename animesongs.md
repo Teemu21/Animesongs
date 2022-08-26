@@ -411,3 +411,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
 3. [Wings](https://www.youtube.com/watch?v=X708ByP_7yI) 
+
+## X:
+
+1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
+
