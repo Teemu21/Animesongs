@@ -34,7 +34,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## 86:
 
-1. [3 min 29 sec](https://www.youtube.com/watch?v=3BIfNwhMDh8)
+1. [3 min 29 sec](https://www.youtube.com/watch?v=6TlcIC0qKN0)
 2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
 
 ## A Certain-Series:
@@ -74,7 +74,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Aldnoah.Zero:
 
-1. [Heavenly Blue](https://www.youtube.com/watch?v=kjiBFUbSMEI)
+1. [Heavenly Blue](https://www.youtube.com/watch?v=ZwfjS5CvedM)
 
 ## AMAIM Warrior at the Borderline:
 
