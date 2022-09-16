@@ -147,6 +147,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 12. [Everlasting Shine](https://www.youtube.com/watch?v=Ty5xZsfkxqU)
 13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
 
+## BlazBlue: Alter Memory:
+
+1. [Blue Blaze](https://www.youtube.com/watch?v=2Ab4sPny27o)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
