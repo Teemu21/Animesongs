@@ -45,7 +45,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Masterpiece](https://www.youtube.com/watch?v=xT6g5DmVG-0)
 3. [No Buts!](https://www.youtube.com/watch?v=wpUq5P9EDT4)
 4. [See VisionS](https://www.youtube.com/watch?v=CxrGfbZBGTY)
-5. [Gravitation](https://www.youtube.com/watch?v=eo_JfVJEFLo)
+5. [Gravitation](https://www.youtube.com/watch?v=x23cHPtzhL4)
 6. [Roar](https://www.youtube.com/watch?v=STUTLhWSUY4)
 
 ### A Certain Scientific Railgun:
@@ -109,6 +109,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Azur Lane:
 
 1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
+
+## Bastard!! -Heavy Metal, Dark Fantasy-:
+
+1. [Bloody Power Fame](https://www.youtube.com/watch?v=u3zWAr3qy3Q)
 
 ## Battle Game in 5 Seconds:
 
@@ -409,7 +413,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Sword Art Online Alicization - War of the Underworld:
 
 1. [Resolution](https://www.youtube.com/watch?v=nUtgOwCh2uY)
-2. [Anima](https://www.youtube.com/watch?v=8ySmJPITz4k)
+2. [Anima](https://www.youtube.com/watch?v=GTpND3F48ZI)
 
 ## The Heroic Legend of Arslan:
 
