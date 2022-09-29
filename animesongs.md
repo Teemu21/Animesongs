@@ -128,7 +128,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Berserk 1997:
 
-1. [Tell Me Why](https://www.youtube.com/watch?v=I2rV8oKWSdM) 
+1. [Tell Me Why](https://www.youtube.com/watch?v=_iiN2oZ2n0o) 
 
 ### Berserk 2016/17:
 
@@ -379,7 +379,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Neon Genesis Evangelion:
 
-1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=z-wpXShTUfY)
+1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=LDqcGXTGhGM)
 
 ## Night Head 2041:
 
