@@ -313,7 +313,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Invoke](https://www.youtube.com/watch?v=MhtKS45ANAs)
 2. [Moment](https://www.youtube.com/watch?v=nNGWrmbvrW4)
-3. [Believe](https://www.youtube.com/watch?v=SUfXG3-fsh8)
+3. [Believe](https://www.youtube.com/watch?v=sOOqk47IZX0)
 4. [Realize](https://www.youtube.com/watch?v=vGLoaXD3sNE)
 
 ### Mobile Suit Gundam: Seed Destiny:
