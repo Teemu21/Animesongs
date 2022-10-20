@@ -69,7 +69,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Akame ga Kill:
 
-1. [Skyreach](https://www.youtube.com/watch?v=vqshxf8WiHE)
+1. [Skyreach](https://www.youtube.com/watch?v=2grzpLbseh0)
 2. [Liar Mask](https://www.youtube.com/watch?v=IzhGVssPtgE)
 
 ## Aldnoah.Zero:
@@ -199,7 +199,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Fate/Stay Night:
 
 1. [Disillusion](https://www.youtube.com/watch?v=I4poryDakX0)
-2. [The Glittering Tears Sent to the Stars](https://www.youtube.com/watch?v=luUZHAkoGRs)
+2. [The Glittering Tears Sent to the Stars](https://www.youtube.com/watch?v=Sj_EfthQUS0)
 
 ### Fate/Stay Night: Unlimited Blade Works:
 
@@ -326,7 +326,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Mobile Suit Gundam: 00:
 
 1. [Daybreak's Bell](https://www.youtube.com/watch?v=hkvk9pNJ87Q)
-2. [Ash Like Snow](https://www.youtube.com/watch?v=VVhBoPPbgvY)
+2. [Ash Like Snow](https://www.youtube.com/watch?v=t2udsdlt3Ok)
 3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=g73s3r6CAto)
 4. [Past The Tears](https://www.youtube.com/watch?v=cEkCFEBWND8)
 
