@@ -346,7 +346,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Staple Stable](https://www.youtube.com/watch?v=4BFuamh-l14)
 2. [The Road Home](https://www.youtube.com/watch?v=Pnua0NO0McM)
 3. [Ambivalent World](https://www.youtube.com/watch?v=4BG6MtVRHdk)
-4. [Ren’ai Circulation](https://www.youtube.com/watch?v=P4mhbumb_xk)
+4. [Ren’ai Circulation](https://www.youtube.com/watch?v=AW7_dqi9X7M)
 5. [Sugar Sweet Nightmare](https://www.youtube.com/watch?v=5aOLQQ9kPdk)
 
 ### Nisemonogatari:
