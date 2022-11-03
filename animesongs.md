@@ -389,6 +389,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [I'm Obsessed With Roses](https://www.youtube.com/watch?v=tqm6cVPG0jU)
 
+## Romantic Killer:
+
+1. [ROMA☆KiRA](https://www.youtube.com/watch?v=-jkVlpBgmeM)
+
 ## Seraph of the End:
 
 1. [X.U.](https://www.youtube.com/watch?v=yHUnr2ulyu0)
