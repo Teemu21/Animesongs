@@ -142,11 +142,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Black Rover](https://www.youtube.com/watch?v=Lcg871eYKfY)
 4. [Guess Who Is Back](https://www.youtube.com/watch?v=6InvxaiMpa4)
 5. [Reckless](https://www.youtube.com/watch?v=TciQvQFTzHo)
-6. [Graffiti Page](https://www.youtube.com/watch?v=s_ztwVMEns8)
+6. [Graffiti Page](https://www.youtube.com/watch?v=KGZHMLtcQ1U)
 7. [Just A Dice](https://www.youtube.com/watch?v=Eyfne13djNs)
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
-9. [Right Now](https://www.youtube.com/watch?v=d1hJeBpKn2Y)
-10. [Black Catcher](https://www.youtube.com/watch?v=G40CNmGPwjI) 
+9. [Right Now](https://www.youtube.com/watch?v=Ezr7997v2X4)
+10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
 11. [Stories](https://www.youtube.com/watch?v=Npq6nXAqx_I)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
 13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
@@ -383,7 +383,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Night Head 2041:
 
-1. [Icy Ivy](https://www.youtube.com/watch?v=5UDXhHrhRRk) 
+1. [Icy Ivy](https://www.youtube.com/watch?v=2dpF7sV1Hp4) 
 
 ## Requiem of the Rose King:
 
