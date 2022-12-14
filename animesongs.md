@@ -219,6 +219,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
 2. [Baddest](https://www.youtube.com/watch?v=rNGNU7Cvh5Y)
 
+## I'm The Villainess, So I'm Taming The Final Boss:
+
+1. [You Don't Have To Be Sympathetic](https://www.youtube.com/watch?v=aR8fEdxjEYw)
+
 ## Jujutsu Kaisen:
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
