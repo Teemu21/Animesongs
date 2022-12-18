@@ -98,6 +98,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Flare](https://www.youtube.com/watch?v=zrJ4hqF_Evg)
 2. [Daylight](https://www.youtube.com/watch?v=i4J_aRQ21Bo)
 
+## Arknights: Prelude To Dawn:
+
+1. [Alive](https://www.youtube.com/watch?v=gCCNXUrCsys)
+
 ## AWOL:
 
 1. [Rocket Dive](https://www.youtube.com/watch?v=-qoVeoG8XuU)
