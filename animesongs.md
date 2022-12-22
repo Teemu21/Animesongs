@@ -159,6 +159,26 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Blue Blaze](https://www.youtube.com/watch?v=2Ab4sPny27o)
 
+## Bleach:
+
+### Bleach:
+
+1. [*~Asterisk~](https://www.youtube.com/watch?v=r-MEKwXFF-s) 
+2. [D-TecnoLife](https://www.youtube.com/watch?v=QxjHdLgh5W4)
+3. [One Lone Flower](https://www.youtube.com/watch?v=Q5kXgOU6z7o)
+4. [Tonight, Tonight, Tonight](https://www.youtube.com/watch?v=WNSow-dlTWE)
+5. [Rolling Star](https://www.youtube.com/watch?v=GuUZ3hQ9qBY)
+6. [Alones](https://www.youtube.com/watch?v=6SLhQEBTK4Y)
+7. [After Dark](https://www.youtube.com/watch?v=xp1Fm9D_P7A)
+8. [In Space](https://www.youtube.com/watch?v=awk-ITJ6QpQ)
+9. [Velonica](https://www.youtube.com/watch?v=pH5pOshN8cA)
+10. [Shoujo S](https://www.youtube.com/watch?v=ZjvGZTCVqUQ)
+11. [Anima Rossa](https://www.youtube.com/watch?v=_4wMFpn5qNA)
+12. [Change](https://www.youtube.com/watch?v=FadWNNDo6ps)
+13. [Melody Of The Wild Dance](https://www.youtube.com/watch?v=82haKXABHVQ)
+14. [Blue](https://www.youtube.com/watch?v=uDPpJYOh9xk)
+15. [Spring Breeze](https://www.youtube.com/watch?v=vTUTFw8e0U4)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
