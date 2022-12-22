@@ -163,7 +163,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Bleach:
 
-1. [*~Asterisk~](https://www.youtube.com/watch?v=r-MEKwXFF-s) 
+1. [*Asterisk~](https://www.youtube.com/watch?v=r-MEKwXFF-s) 
 2. [D-TecnoLife](https://www.youtube.com/watch?v=QxjHdLgh5W4)
 3. [One Lone Flower](https://www.youtube.com/watch?v=Q5kXgOU6z7o)
 4. [Tonight, Tonight, Tonight](https://www.youtube.com/watch?v=WNSow-dlTWE)
