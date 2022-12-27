@@ -138,7 +138,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Berserk 2016/17:
 
 1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
-2. [Sacrifice](https://www.youtube.com/watch?v=1nP5q2OQolk)
+2. [Sacrifice](https://www.youtube.com/watch?v=kM9__x5Bd8c)
 
 ## Black Clover:
 
