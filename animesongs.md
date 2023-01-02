@@ -180,6 +180,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 14. [Blue](https://www.youtube.com/watch?v=uDPpJYOh9xk)
 15. [Spring Breeze](https://www.youtube.com/watch?v=gjns1vPELA4)
 
+### Bleach: Thousand-Year Blood War:
+
+1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
