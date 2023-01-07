@@ -115,6 +115,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
 
+## Baka & Test - Summon the Beasts:
+
+1. [Perfect-Area Complete!](https://www.youtube.com/watch?v=W9TAnLt8M5E)
+
 ## Bastard!! -Heavy Metal, Dark Fantasy-:
 
 1. [Bloody Power Fame](https://www.youtube.com/watch?v=u3zWAr3qy3Q)
