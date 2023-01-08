@@ -117,7 +117,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Baka & Test - Summon the Beasts:
 
+### Baka & Test - Summon the Beasts:
+
 1. [Perfect-Area Complete!](https://www.youtube.com/watch?v=W9TAnLt8M5E)
+
+### Baka & Test - Summon the Beasts OVA:
+
+1. [Love Improvement Committee](https://www.youtube.com/watch?v=HKL1ua0I_5Y) 
 
 ## Bastard!! -Heavy Metal, Dark Fantasy-:
 
