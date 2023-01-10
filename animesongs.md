@@ -120,6 +120,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Baka & Test - Summon the Beasts:
 
 1. [Perfect-Area Complete!](https://www.youtube.com/watch?v=W9TAnLt8M5E)
+2. [You + Riddles + Me = JUMP!!](https://www.youtube.com/watch?v=FlQ2WC7isag)
 
 ### Baka & Test - Summon the Beasts OVA:
 
