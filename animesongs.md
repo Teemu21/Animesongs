@@ -450,6 +450,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [X.U.](https://www.youtube.com/watch?v=yHUnr2ulyu0)
 2. [Two Souls - Toward The Truth](https://www.youtube.com/watch?v=BJ2VFg6L1hA)
 
+## Sorcerer Hunters:
+
+1. [What's Up Guys?](https://www.youtube.com/watch?v=_QZq8Dd0ajU)
+
 ## Sword Art Online:
 
 ### Sword Art Online I:
