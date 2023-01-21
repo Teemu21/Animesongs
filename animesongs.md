@@ -453,6 +453,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Sorcerer Hunters:
 
 1. [What's Up Guys?](https://www.youtube.com/watch?v=_QZq8Dd0ajU)
+2. [Shoot Love Hunters](https://www.youtube.com/watch?v=20QyHVgP3CE)
 
 ## Sword Art Online:
 
