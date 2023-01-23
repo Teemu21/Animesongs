@@ -38,6 +38,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [3 min 29 sec](https://www.youtube.com/watch?v=6TlcIC0qKN0)
 2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
 
+## Accel World:
+
+1. [Chase The World](https://www.youtube.com/watch?v=f9iyz6BEODs)
+2. [Burst The Gravity](https://www.youtube.com/watch?v=_El-YCBTUuk)
+
 ## A Certain-Series:
 
 ### A Certain Magical Index:
