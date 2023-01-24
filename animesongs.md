@@ -448,7 +448,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Romantic Killer:
 
-1. [ROMA☆KiRA](https://www.youtube.com/watch?v=-jkVlpBgmeM)
+1. [ROMA☆KiRA](https://www.youtube.com/watch?v=Mw6dMoIRMgI)
 
 ## Seraph of the End:
 
