@@ -95,10 +95,6 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Blue Bookmark](https://www.youtube.com/watch?v=8H9z5ZuGmBw)
 
-## Assassination Classroom:
-
-3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
-
 ## Arifureta: From Commonplace to World's Strongest:
 
 1. [Flare](https://www.youtube.com/watch?v=zrJ4hqF_Evg)
@@ -107,6 +103,14 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Arknights: Prelude To Dawn:
 
 1. [Alive](https://www.youtube.com/watch?v=gCCNXUrCsys)
+
+## Assassination Classroom:
+
+3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
+
+## Astra Lost In Space:
+
+1. [Star*Frost](https://www.youtube.com/watch?v=mna7Ly90YLk)
 
 ## AWOL:
 
