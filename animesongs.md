@@ -344,7 +344,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Mobile Suit Gundam ZZ:
 
-1. [It's Not Anime](https://www.youtube.com/watch?v=K9H9xPFP5-M)
+1. [It's Not Anime](https://www.youtube.com/watch?v=CKwpYNFWr9A)
 2. [Silent Voice](https://www.youtube.com/watch?v=k6I-85Yuw_8)
 
 ### Mobile Suit Victory Gundam:
