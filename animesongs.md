@@ -214,6 +214,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [In My World](https://www.youtube.com/watch?v=BULeNYMVn_s)
 3. [A Drop of Influence](https://www.youtube.com/watch?v=8CTgP87aWmM)
 
+## Blue Gender:
+
+1. [Break Free](https://www.youtube.com/watch?v=-HGbg-H2cCA)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=ilgH0-89YvI)
