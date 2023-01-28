@@ -163,9 +163,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Black Clover:
 
 1. [Faraway Future](https://www.youtube.com/watch?v=75rCnz7_whs) 
-2. [Paint It Black](https://www.youtube.com/watch?v=vjDg8hh_F7c)
+2. [Paint It Black](https://www.youtube.com/watch?v=WhlBjbPT56k)
 3. [Black Rover](https://www.youtube.com/watch?v=Lcg871eYKfY)
-4. [Guess Who Is Back](https://www.youtube.com/watch?v=6InvxaiMpa4)
+4. [Guess Who Is Back](https://www.youtube.com/watch?v=M-ROgEvfkqE)
 5. [Reckless](https://www.youtube.com/watch?v=TciQvQFTzHo)
 6. [Graffiti Page](https://www.youtube.com/watch?v=KGZHMLtcQ1U)
 7. [Just A Dice](https://www.youtube.com/watch?v=Eyfne13djNs)
