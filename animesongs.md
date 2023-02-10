@@ -176,7 +176,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
 9. [Right Now](https://www.youtube.com/watch?v=Ezr7997v2X4)
 10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
-11. [Stories](https://www.youtube.com/watch?v=Npq6nXAqx_I)
+11. [Stories](https://www.youtube.com/watch?v=Hct3d0so0fo)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
 13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
 
