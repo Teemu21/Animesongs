@@ -164,6 +164,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
 2. [Sacrifice](https://www.youtube.com/watch?v=kM9__x5Bd8c)
 
+## Big Order:
+
+1. [Disorder](https://www.youtube.com/watch?v=p9FeuULdZf0)
+
 ## Black Clover:
 
 1. [Faraway Future](https://www.youtube.com/watch?v=75rCnz7_whs) 
