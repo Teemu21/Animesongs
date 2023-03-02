@@ -180,7 +180,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
 9. [Right Now](https://www.youtube.com/watch?v=Ezr7997v2X4)
 10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
-11. [Stories](https://www.youtube.com/watch?v=Hct3d0so0fo)
+11. [Stories](https://www.youtube.com/watch?v=DFA89TQ92Go)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
 13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
 
@@ -398,6 +398,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Ash Like Snow](https://www.youtube.com/watch?v=t2udsdlt3Ok)
 3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=g73s3r6CAto)
 4. [Past The Tears](https://www.youtube.com/watch?v=cEkCFEBWND8)
+
+### Gundam Build Series:
+
+#### Gundam Build Fighters:
+
+1. [One Half](https://www.youtube.com/watch?v=srIQEU5R2Ko)
+2. [Wimp ft.Lil'Fang (from FAKY)](https://www.youtube.com/watch?v=H8U58RZ1qRQ)
 
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
 
