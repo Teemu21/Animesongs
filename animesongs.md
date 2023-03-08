@@ -306,6 +306,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Legendary Future](https://www.youtube.com/watch?v=RvyRLOO9xdM)
 2. [Eclipse](https://www.youtube.com/watch?v=VAv8TCFeXAI)
 
+## Knights of Sidonia:
+
+1. [Sidonia](https://www.youtube.com/watch?v=51LMOJu9lwc)
+
 ## Kuromukuro:
 
 1. [Deathtopia](https://www.youtube.com/watch?v=0PI4C-xRs8M)
