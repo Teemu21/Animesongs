@@ -323,6 +323,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Sirius](https://www.youtube.com/watch?v=_CKbNJkcwe0)
 
+## Legend of the Galactic Heroes: Die Neue These:
+
+1. [Binary Star](https://www.youtube.com/watch?v=OC90kLIs03c)
+
 ## Leijiverse:
 
 ### Gun Frontier:
