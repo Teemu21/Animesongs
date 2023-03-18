@@ -310,6 +310,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Sidonia](https://www.youtube.com/watch?v=51LMOJu9lwc)
 
+## KonoSuba: God's Blessing on This Wonderful World!:
+
+1. [Fantastic Dreamer](https://www.youtube.com/watch?v=uEj8DaXWnvE)
+2. [Tomorrow](https://www.youtube.com/watch?v=a5E4_uFYFJ0)
+
 ## Kurau Phantom Memory:
 
 1. [Beloved Sea Of Infinity](https://www.youtube.com/watch?v=YnSGRlZ_XTk)
