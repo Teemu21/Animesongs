@@ -499,6 +499,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Icy Ivy](https://www.youtube.com/watch?v=2dpF7sV1Hp4) 
 
+## Outlaw Star:
+
+1. [Through The Night](https://www.youtube.com/watch?v=dAMCYV8iQNg)
+
 ## Requiem of the Rose King:
 
 1. [I'm Obsessed With Roses](https://www.youtube.com/watch?v=tqm6cVPG0jU)
