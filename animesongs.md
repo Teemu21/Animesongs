@@ -503,6 +503,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Through The Night](https://www.youtube.com/watch?v=dAMCYV8iQNg)
 
+## Puella Magi Madoka Magica:
+
+1. [Connect](https://www.youtube.com/watch?v=g1vw9ftAWSc)
+
 ## Requiem of the Rose King:
 
 1. [I'm Obsessed With Roses](https://www.youtube.com/watch?v=tqm6cVPG0jU)
