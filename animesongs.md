@@ -284,6 +284,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [My Dearest](https://www.youtube.com/watch?v=ZPt9w-p6q9I)
 2. [The Everlasting Guilty Crown](https://www.youtube.com/watch?v=-p0IjnBhG10)
 
+## Handyman Saitou in Another World:
+
+1. [Kaleidoscope](https://www.youtube.com/watch?v=onSsO_ysI9w)
+
 ## Heroic Age:
 
 1. [Gravitation](https://www.youtube.com/watch?v=Bfw6LnTWXd4)
