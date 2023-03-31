@@ -60,7 +60,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Level-5 Judgelight](https://www.youtube.com/watch?v=C9UIm-j-OD0)
 3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
-5. [Final Phase](https://www.youtube.com/watch?v=0S3OG9qxc_o)
+5. [Final Phase](https://www.youtube.com/watch?v=Leq8J0E2TQ0)
 6. [Dual Existence](https://www.youtube.com/watch?v=tFsppE4C6vg)
 
 ### A Certain Scientific Accelerator:
@@ -447,6 +447,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [One Half](https://www.youtube.com/watch?v=srIQEU5R2Ko)
 2. [Wimp ft.Lil'Fang (from FAKY)](https://www.youtube.com/watch?v=H8U58RZ1qRQ)
+
+#### Gundam Build Fighters Try:
+
+1. [Cerulean](https://www.youtube.com/watch?v=y13x-92kr-U)
+2. [Just Fly Away](https://www.youtube.com/watch?v=-pQk1ypw92s) 
 
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
 
