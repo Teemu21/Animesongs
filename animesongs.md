@@ -516,6 +516,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Through The Night](https://www.youtube.com/watch?v=dAMCYV8iQNg)
 
+## Patlabor Series:
+
+### Patlabor: The Mobile Police:
+
+1. [Futuristic Lovers](https://www.youtube.com/watch?v=LzNbA6_sYW4)
+
 ## Planetes:
 
 1. [Dive In The Sky](https://www.youtube.com/watch?v=8HSOD1pJt40)
