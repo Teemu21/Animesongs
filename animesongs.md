@@ -268,8 +268,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Fate/Stay Night: Unlimited Blade Works:
 
-1. [Ideal White](https://www.youtube.com/watch?v=d7nl_pS4iEA)
-2. [Brave Shine](https://www.youtube.com/watch?v=qPbA0mMGsSg)
+1. [Ideal White](https://www.youtube.com/watch?v=5VqdVublwDg)
+2. [Brave Shine](https://www.youtube.com/watch?v=wMybECC5j30)
 
 ## Giant Beasts of Ars:
 
@@ -436,10 +436,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Mobile Suit Gundam: 00:
 
-1. [Daybreak's Bell](https://www.youtube.com/watch?v=hkvk9pNJ87Q)
+1. [Daybreak's Bell](https://www.youtube.com/watch?v=8HWU1h1Dda0)
 2. [Ash Like Snow](https://www.youtube.com/watch?v=t2udsdlt3Ok)
 3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=g73s3r6CAto)
-4. [Past The Tears](https://www.youtube.com/watch?v=cEkCFEBWND8)
+4. [Past The Tears](https://www.youtube.com/watch?v=D2xIzFw5W_E)
 
 ### Gundam Build Series:
 
