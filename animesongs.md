@@ -586,6 +586,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
 
+## Vivy: Fluorite Eye's Song:
+
+1. [Sing My Pleasure](https://www.youtube.com/watch?v=JqN4_mufE2U)
+2. [Galaxy Anthem](https://www.youtube.com/watch?v=nbSwgEWkM6w)
+
 ## X:
 
 1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
