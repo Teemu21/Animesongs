@@ -451,7 +451,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 #### Gundam Build Fighters Try:
 
 1. [Cerulean](https://www.youtube.com/watch?v=y13x-92kr-U)
-2. [Just Fly Away](https://www.youtube.com/watch?v=-pQk1ypw92s) 
+2. [Just Fly Away](https://www.youtube.com/watch?v=-pQk1ypw92s)
+
+#### Gundam Build Divers:
+
+1. [Diver's High](https://www.youtube.com/watch?v=nbeCBeWCaSU) 
+2. [Infinity](https://www.youtube.com/watch?v=_gV8Z1agp54)
 
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
 
