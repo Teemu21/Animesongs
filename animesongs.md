@@ -458,6 +458,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Diver's High](https://www.youtube.com/watch?v=nbeCBeWCaSU) 
 2. [Infinity](https://www.youtube.com/watch?v=_gV8Z1agp54)
 
+#### Gundam Build Divers Re:Rise:
+
+1. [ReRise](https://www.youtube.com/watch?v=mR7IZCkS_j4)
+2. [Question](https://www.youtube.com/watch?v=F4DQ4c8_tHA)
+
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
 
 3. [Rage Of Dust](https://www.youtube.com/watch?v=DVfVn0r9848)
