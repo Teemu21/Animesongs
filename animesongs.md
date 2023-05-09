@@ -587,6 +587,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Resolution](https://www.youtube.com/watch?v=nUtgOwCh2uY)
 2. [Anima](https://www.youtube.com/watch?v=GTpND3F48ZI)
 
+## The Ancient Magus' Bride:
+
+1. [Here](https://www.youtube.com/watch?v=D2xIzFw5W_E)
+2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
