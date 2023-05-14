@@ -316,7 +316,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## King's Raid: Successors of the Will:
 
-1. [Legendary Future](https://www.youtube.com/watch?v=RvyRLOO9xdM)
+1. [Legendary Future](https://www.youtube.com/watch?v=ETH4ap4Nh34)
 2. [Eclipse](https://www.youtube.com/watch?v=VAv8TCFeXAI)
 
 ## Knights of Sidonia:
