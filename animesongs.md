@@ -271,6 +271,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ideal White](https://www.youtube.com/watch?v=5VqdVublwDg)
 2. [Brave Shine](https://www.youtube.com/watch?v=wMybECC5j30)
 
+### Fate/Grand Order - Absolute Demonic Front: Babylonia:
+
+1. [Phantom Joke](https://www.youtube.com/watch?v=kTXBYK2K3q8)
+
 ## Giant Beasts of Ars:
 
 1. [Morphing Existence](https://www.youtube.com/watch?v=Qtm04acV7RA)
