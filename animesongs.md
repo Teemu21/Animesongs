@@ -276,6 +276,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Egoist](https://www.youtube.com/watch?v=49qnbuHc38s)
 2. [Ash](https://www.youtube.com/watch?v=ugrejIvsP_0)
 
+### Fate/Extra: Last Encore:
+
+1. [Bright Burning Shout](https://www.youtube.com/watch?v=YizvL4xPc0E)
+
 ### Fate/Grand Order - Absolute Demonic Front: Babylonia:
 
 1. [Phantom Joke](https://www.youtube.com/watch?v=kTXBYK2K3q8)
