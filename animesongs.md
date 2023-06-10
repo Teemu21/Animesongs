@@ -82,6 +82,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Heavenly Blue](https://www.youtube.com/watch?v=ZwfjS5CvedM)
 
+## Amagi Brilliant Park:
+
+1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
+
 ## AMAIM Warrior at the Borderline:
 
 1. [Enemy](https://www.youtube.com/watch?v=KEJIc-wvecg)
@@ -353,6 +357,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Last Hope:
 
 1. [Sirius](https://www.youtube.com/watch?v=_CKbNJkcwe0)
+
+## Legend of Angel:
+
+1. [Like A Rolling Stone](https://www.youtube.com/watch?v=kBI0qt9dLgM)
 
 ## Legend of the Galactic Heroes: Die Neue These:
 
