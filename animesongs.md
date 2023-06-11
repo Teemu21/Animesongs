@@ -275,6 +275,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Ideal White](https://www.youtube.com/watch?v=5VqdVublwDg)
 2. [Brave Shine](https://www.youtube.com/watch?v=wMybECC5j30)
 
+### Fate/Kaleid Liner Prisma Illya:
+
+1. [Starlog](https://www.youtube.com/watch?v=vKN7hTeNLbE)
+
 ### Fate/Apocrypha:
 
 1. [Egoist](https://www.youtube.com/watch?v=49qnbuHc38s)
