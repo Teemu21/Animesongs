@@ -95,6 +95,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [My Soul, Your Beats!](https://www.youtube.com/watch?v=zIFV8UUs1-c)
 
+## Angolmois: Record of Mongol Invasion:
+
+1. [Braver](https://www.youtube.com/watch?v=PFhPipWvZTQ)
+
 ## AnoHana, We Still Don't Know the Name of the Flower We Saw That Day.:
 
 1. [Blue Bookmark](https://www.youtube.com/watch?v=8H9z5ZuGmBw)
