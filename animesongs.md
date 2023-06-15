@@ -282,6 +282,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Fate/Kaleid Liner Prisma Illya:
 
 1. [Starlog](https://www.youtube.com/watch?v=vKN7hTeNLbE)
+2. [Moving Soul](https://www.youtube.com/watch?v=rwj7GVmMkh0)
 
 ### Fate/Apocrypha:
 
