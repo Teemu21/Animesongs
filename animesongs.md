@@ -642,6 +642,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
 3. [Wings](https://www.youtube.com/watch?v=X708ByP_7yI) 
 
+## The Legendary Hero Is Dead!:
+
+1. [I'm Dead!](https://www.youtube.com/watch?v=NkHt-wt1Ih0)
+
 ## Top Secret: The Revelation:
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
