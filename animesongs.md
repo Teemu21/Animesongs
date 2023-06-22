@@ -353,10 +353,16 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Sidonia](https://www.youtube.com/watch?v=51LMOJu9lwc)
 
-## KonoSuba: God's Blessing on This Wonderful World!:
+## KonoSuba:
+
+### KonoSuba: God's Blessing on This Wonderful World!:
 
 1. [Fantastic Dreamer](https://www.youtube.com/watch?v=uEj8DaXWnvE)
 2. [Tomorrow](https://www.youtube.com/watch?v=a5E4_uFYFJ0)
+
+### KonoSuba: An Explosion on This Wonderful World!:
+
+1. [Stay Free](https://www.youtube.com/watch?v=BpYuHZSs_Hs)
 
 ## Kurau Phantom Memory:
 
@@ -547,6 +553,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Hanamonogatari:
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
+
+## My Home Hero:
+
+[Song of Love](https://www.youtube.com/watch?v=5ut-PJcQqMg)
 
 ## Neon Genesis Evangelion:
 
