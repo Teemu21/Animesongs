@@ -635,6 +635,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Here](https://www.youtube.com/watch?v=D2xIzFw5W_E)
 2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
+3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 
 ## The Heroic Legend of Arslan:
 
@@ -653,4 +654,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## X:
 
 1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
+
+## Yuri Is My Job:
+
+1. [Secret♡Melody](https://www.youtube.com/watch?v=AXaB2JSbqFA)
 
