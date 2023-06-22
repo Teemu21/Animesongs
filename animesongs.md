@@ -556,7 +556,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## My Home Hero:
 
-[Song of Love](https://www.youtube.com/watch?v=5ut-PJcQqMg)
+1. [Song of Love](https://www.youtube.com/watch?v=5ut-PJcQqMg)
 
 ## Neon Genesis Evangelion:
 
