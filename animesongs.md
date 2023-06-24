@@ -566,6 +566,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Icy Ivy](https://www.youtube.com/watch?v=2dpF7sV1Hp4) 
 
+## Otaku Elf:
+
+1. [Strange Romance](https://www.youtube.com/watch?v=Bw-XfRXqAPI)
+
 ## Outlaw Star:
 
 1. [Through The Night](https://www.youtube.com/watch?v=dAMCYV8iQNg)
