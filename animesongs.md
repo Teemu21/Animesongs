@@ -318,6 +318,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Kaleidoscope](https://www.youtube.com/watch?v=onSsO_ysI9w)
 
+## Heavenly Delusion:
+
+1. [Innocent Arrogance](https://www.youtube.com/watch?v=YVtXn2bFIls)
+
 ## Heroic Age:
 
 1. [Gravitation](https://www.youtube.com/watch?v=Bfw6LnTWXd4)
