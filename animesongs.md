@@ -212,7 +212,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 6. [Alones](https://www.youtube.com/watch?v=6SLhQEBTK4Y)
 7. [After Dark](https://www.youtube.com/watch?v=xp1Fm9D_P7A)
 8. [In Space](https://www.youtube.com/watch?v=awk-ITJ6QpQ)
-9. [Velonica](https://www.youtube.com/watch?v=pH5pOshN8cA)
+9. [Velonica](https://www.youtube.com/watch?v=ggGxLA15fF4)
 10. [Shoujo S](https://www.youtube.com/watch?v=ZjvGZTCVqUQ)
 11. [Anima Rossa](https://www.youtube.com/watch?v=_4wMFpn5qNA)
 12. [Change](https://www.youtube.com/watch?v=FadWNNDo6ps)
@@ -252,6 +252,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [Impossible to Decipher](https://www.youtube.com/watch?v=tNDR1XOW-7k)<br>
 3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
 5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
+
+## Dead Mount Death Play:
+
+1. [Nero](https://www.youtube.com/watch?v=5kkY3WxiPnA)
 
 ## Death Note:
 
