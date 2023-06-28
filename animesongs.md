@@ -11,6 +11,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Songs by Series/Franchise in Alphabetical Order:
 
+## [Oshi No Ko[:
+
+1. [Idol](https://www.youtube.com/watch?v=7P42Qjcl8qA)
+
 ## .hack//:
 
 ### .hack//Liminality:
@@ -337,6 +341,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Id: Invaded:
 
 1. [Mr. Fixer](https://www.youtube.com/watch?v=gtDC6VtAk8c)
+
+## I Got a Cheat Skill in Another World and Became Unrivaled in The Real World, Too:
+
+1. [Turnabout Drama](https://www.youtube.com/watch?v=_VwpWpA17Ho)
 
 ## I'm Standing on a Million Lives:
 
