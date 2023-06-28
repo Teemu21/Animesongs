@@ -436,7 +436,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Mobile Suit Gundam 0083: Stardust Memory:
 
-1. [The Winner](https://www.youtube.com/watch?v=eP0U3irjIow)
+1. [The Winner](https://www.youtube.com/watch?v=fSEOolexzBw)
 2. [Men Of Destiny](https://www.youtube.com/watch?v=3oQZszjvVFY)
 
 ### Mobile Suit Zeta Gundam:
@@ -466,7 +466,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Mobile Suit Gundam: After War Gundam X:
 
 1. [Dreams](https://www.youtube.com/watch?v=w7VO_gJvFbY)
-2. [Resolution](https://www.youtube.com/watch?v=wJ-HThc_2Yg)
+2. [Resolution](https://www.youtube.com/watch?v=S52QQiBGNUI)
 
 ### Mobile Suit Gundam: Seed:
 
@@ -666,6 +666,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Sing My Pleasure](https://www.youtube.com/watch?v=JqN4_mufE2U)
 2. [Galaxy Anthem](https://www.youtube.com/watch?v=nbSwgEWkM6w)
+
+## Welcome To Demon School! Iruma-kun:
+
+1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
 
 ## X:
 
