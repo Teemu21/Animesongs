@@ -295,6 +295,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Starlog](https://www.youtube.com/watch?v=vKN7hTeNLbE)
 2. [Moving Soul](https://www.youtube.com/watch?v=rwj7GVmMkh0)
+3. [Wonder Stella](https://www.youtube.com/watch?v=Xn5Qwu-tBNM)
 
 ### Fate/Apocrypha:
 
