@@ -437,6 +437,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [You Get To Burning!](https://www.youtube.com/watch?v=lF8r7PO19vQ)
 
+## Mashle: Magic and Muscles:
+
+1. [Knock Out](https://www.youtube.com/watch?v=ADeEdqeq0To)
+
 ## Mobile Suit Gundam:
 
 ### Mobile Suit Gundam: The 08th MS Team:
