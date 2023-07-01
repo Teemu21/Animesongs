@@ -331,6 +331,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Innocent Arrogance](https://www.youtube.com/watch?v=YVtXn2bFIls)
 
+## Hell's Paradise:
+
+1. [Work](https://www.youtube.com/watch?v=6rgx5a1Wr8k)
+
 ## Heroic Age:
 
 1. [Gravitation](https://www.youtube.com/watch?v=Bfw6LnTWXd4)
