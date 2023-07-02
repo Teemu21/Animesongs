@@ -537,6 +537,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Mobile Suit Gundam: The Witch from Mercury:
 
 1. [The Blessings](https://www.youtube.com/watch?v=tveOc7BWqq8)
+2. [Slash](https://www.youtube.com/watch?v=QiNTwU3O7HI)
 
 ## Monogatari Series:
 
