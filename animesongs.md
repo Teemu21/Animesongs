@@ -651,7 +651,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Sword Art Online II:
 
 1. [Ignite](https://www.youtube.com/watch?v=R30GTQTwzcM)
-2. [Courage](https://www.youtube.com/watch?v=QizqLqGLork)
+2. [Courage](https://www.youtube.com/watch?v=UMcs8n4wORA)
 
 ### Sword Art Online Alicization:
 
