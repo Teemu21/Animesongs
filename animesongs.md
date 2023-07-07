@@ -689,6 +689,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Welcome To Demon School! Iruma-kun:
 
 1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
+2. [No! No! Satisfaction!](https://www.youtube.com/watch?v=JOwB4MBVfwA)
 
 ## X:
 
