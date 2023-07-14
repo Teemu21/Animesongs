@@ -690,6 +690,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
 2. [No! No! Satisfaction!](https://www.youtube.com/watch?v=JOwB4MBVfwA)
+3. [Last Minute To Ride It Out (My own translatation)](https://www.youtube.com/watch?v=3VZDhZ0v150)
 
 ## X:
 
