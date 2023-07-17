@@ -311,6 +311,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Phantom Joke](https://www.youtube.com/watch?v=kTXBYK2K3q8)
 
+### Carnival Phantasm:
+
+1. [Super ☆ Affection](https://www.youtube.com/watch?v=X3aKe8n6NLo)
+
 ## Giant Beasts of Ars:
 
 1. [Morphing Existence](https://www.youtube.com/watch?v=Qtm04acV7RA)
