@@ -300,7 +300,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Fate/Apocrypha:
 
-1. [Egoist](https://www.youtube.com/watch?v=49qnbuHc38s)
+1. [Heroes: Song of Fate](https://www.youtube.com/watch?v=49qnbuHc38s)
 2. [Ash](https://www.youtube.com/watch?v=ugrejIvsP_0)
 
 ### Fate/Extra: Last Encore:
