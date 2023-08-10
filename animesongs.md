@@ -192,9 +192,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 4. [Guess Who Is Back](https://www.youtube.com/watch?v=M-ROgEvfkqE)
 5. [Reckless](https://www.youtube.com/watch?v=TciQvQFTzHo)
 6. [Graffiti Page](https://www.youtube.com/watch?v=KGZHMLtcQ1U)
-7. [Just A Dice](https://www.youtube.com/watch?v=Eyfne13djNs)
+7. [Just A Dice](https://www.youtube.com/watch?v=xcmeWWbP1ek)
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
-9. [Right Now](https://www.youtube.com/watch?v=Ezr7997v2X4)
+9. [Right Now](https://www.youtube.com/watch?v=14q0Lyd5hOs)
 10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
 11. [Stories](https://www.youtube.com/watch?v=DFA89TQ92Go)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
@@ -227,6 +227,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Bleach: Thousand-Year Blood War:
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
+
+## Blood Lad:
+
+1. [Vivid](https://www.youtube.com/watch?v=Hc6Jrr_2FBA)
 
 ## Blue Comet SPT Layzner:
 
