@@ -228,6 +228,15 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
 
+## Blood:
+
+### Blood+:
+
+1. [Tears Of The Blue Sky](https://www.youtube.com/watch?v=Xh9N2unxu5A)
+2. [Season's Call](https://www.youtube.com/watch?v=UvzcI2sbB0E)
+3. [Colors Of The Heart](https://www.youtube.com/watch?v=km9VaoabVoo)
+4. [Lion](https://www.youtube.com/watch?v=oHVh38b3Qwc)
+
 ## Blood Lad:
 
 1. [Vivid](https://www.youtube.com/watch?v=Hc6Jrr_2FBA)
