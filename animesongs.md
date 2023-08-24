@@ -60,7 +60,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### A Certain Scientific Railgun:
 
-1. [Only My Railgun](https://www.youtube.com/watch?v=Esc-ZgfpgBs)
+1. [Only My Railgun](https://www.youtube.com/watch?v=ZhIxg6_Femo)
 2. [Level-5 Judgelight](https://www.youtube.com/watch?v=C9UIm-j-OD0)
 3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
