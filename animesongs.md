@@ -501,8 +501,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Mobile Suit Gundam: Seed:
 
 1. [Invoke](https://www.youtube.com/watch?v=MhtKS45ANAs)
-2. [Moment](https://www.youtube.com/watch?v=nNGWrmbvrW4)
-3. [Believe](https://www.youtube.com/watch?v=sOOqk47IZX0)
+2. [Moment](https://www.youtube.com/watch?v=TjgeLBxc7Fk)
+3. [Believe](https://www.youtube.com/watch?v=lhlHc56HgUo)
 4. [Realize](https://www.youtube.com/watch?v=vGLoaXD3sNE)
 
 ### Mobile Suit Gundam: Seed Destiny:
@@ -517,7 +517,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Daybreak's Bell](https://www.youtube.com/watch?v=8HWU1h1Dda0)
 2. [Ash Like Snow](https://www.youtube.com/watch?v=t2udsdlt3Ok)
 3. [Fleeting And Everlasting Sorrow](https://www.youtube.com/watch?v=g73s3r6CAto)
-4. [Past The Tears](https://www.youtube.com/watch?v=D2xIzFw5W_E)
+4. [Past The Tears](https://www.youtube.com/watch?v=DAF_NMuE6DM)
 
 ### Gundam Build Series:
 
@@ -533,8 +533,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 #### Gundam Build Divers:
 
-1. [Diver's High](https://www.youtube.com/watch?v=nbeCBeWCaSU) 
-2. [Infinity](https://www.youtube.com/watch?v=_gV8Z1agp54)
+1. [Diver's High](https://www.youtube.com/watch?v=98CfjEnbB3s) 
+2. [Infinity](https://www.youtube.com/watch?v=JD7m2KM7S2s)
 
 #### Gundam Build Divers Re:Rise:
 
@@ -621,7 +621,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Planetes:
 
-1. [Dive In The Sky](https://www.youtube.com/watch?v=8HSOD1pJt40)
+1. [Dive In The Sky](https://www.youtube.com/watch?v=nC6BX5niR5I)
 
 ## Psycho-Pass:
 
