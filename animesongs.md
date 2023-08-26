@@ -237,6 +237,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Colors Of The Heart](https://www.youtube.com/watch?v=km9VaoabVoo)
 4. [Lion](https://www.youtube.com/watch?v=oHVh38b3Qwc)
 
+### Blood-C:
+
+1. [Spiral](https://www.youtube.com/watch?v=IGUGsuHfQJo)
+
 ## Blood Lad:
 
 1. [Vivid](https://www.youtube.com/watch?v=Hc6Jrr_2FBA)
