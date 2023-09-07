@@ -297,6 +297,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Butterfly (All Cast)](https://www.youtube.com/watch?v=Q04iqoRYMcQ)
 3. [Brave Heart](https://www.youtube.com/watch?v=r0E90DgZdqU)
 
+## Erased:
+
+1. [Re:Re:](https://www.youtube.com/watch?v=7814WeR0Xzo)
+
 ## Fate:
 
 ### Fate Zero:
