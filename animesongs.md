@@ -738,6 +738,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
 
+## Yohane the Parhelion: Sunshine in the Mirror:
+
+1. [Reality Mysterium](https://www.youtube.com/watch?v=sHa6WzgrnzA)
+
 ## Yuri Is My Job:
 
 1. [Secret♡Melody](https://www.youtube.com/watch?v=AXaB2JSbqFA)
