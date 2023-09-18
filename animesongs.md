@@ -476,6 +476,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Galaxy Railways in Spring (my own translation)](https://www.youtube.com/watch?v=VtxdNd9lIMQ)
 2. [Carry The Light](https://www.youtube.com/watch?v=TKh1VuMBEf0)
 
+## Level 1 Demon Lord and One Room Hero:
+
+1. [One Room Adventure](https://www.youtube.com/watch?v=f3qgd4sijQk)
+
 ## Liar Liar:
 
 1. [Lies Goes On](https://www.youtube.com/watch?v=UH-Cn5Hvhik)
