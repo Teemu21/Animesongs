@@ -200,7 +200,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
 9. [Right Now](https://www.youtube.com/watch?v=14q0Lyd5hOs)
 10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
-11. [Stories](https://www.youtube.com/watch?v=DFA89TQ92Go)
+11. [Stories](https://www.youtube.com/watch?v=GrI4oLVHLas)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
 13. [Grandeur](https://www.youtube.com/watch?v=0l4WlEmBIY4)
 
@@ -627,6 +627,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
 
+## My Happy Marriage:
+
+1. [By Your Side.](https://www.youtube.com/watch?v=uBHVOO1YIm4)
+
 ## My Home Hero:
 
 1. [Song of Love](https://www.youtube.com/watch?v=5ut-PJcQqMg)
@@ -664,6 +668,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Puella Magi Madoka Magica:
 
 1. [Connect](https://www.youtube.com/watch?v=g1vw9ftAWSc)
+
+## Reborn as a Vending Machine, I Now Wander the Dungeon:
+
+1. [Fanfare](https://www.youtube.com/watch?v=kau-MRoDh1c)
 
 ## Requiem of the Rose King:
 
