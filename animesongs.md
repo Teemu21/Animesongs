@@ -268,6 +268,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Carnival Babel](https://www.youtube.com/watch?v=f8T9kkaGuVg)
 2. [Eternal Truth](https://www.youtube.com/watch?v=gbChshRYw2M)
 
+## Brain Powerd:
+
+1. [In My Dream](https://www.youtube.com/watch?v=TQiVShgRiG8)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
