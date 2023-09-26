@@ -276,6 +276,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [In My Dream](https://www.youtube.com/watch?v=TQiVShgRiG8)
 
+## Broken Blade:
+
+1. [Junction Heart](https://www.youtube.com/watch?v=tcj8t8DYAEY)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
