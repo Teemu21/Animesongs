@@ -144,6 +144,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cloudier Sky](https://www.youtube.com/watch?v=BkXD8DJfr5k)
 
+## Ayakashi Triangle:
+
+1. [The Hot Air Flows](https://www.youtube.com/watch?v=AZZOPTQmKrE)
+
 ## Azur Lane:
 
 1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
@@ -719,6 +723,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Resolution](https://www.youtube.com/watch?v=nUtgOwCh2uY)
 2. [Anima](https://www.youtube.com/watch?v=GTpND3F48ZI)
+
+## Synduality: Noir:
+
+1. [Raytracer](https://www.youtube.com/watch?v=AjfxBiqROso)
 
 ## The Ancient Magus' Bride:
 
