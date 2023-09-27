@@ -751,6 +751,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
 
+## Undead Girl Murder Farce:
+
+1. [Crack-Crack-Crackle](https://www.youtube.com/watch?v=3x2QN_blm5A)
+
 ## Vivy: Fluorite Eye's Song:
 
 1. [Sing My Pleasure](https://www.youtube.com/watch?v=JqN4_mufE2U)
