@@ -280,6 +280,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Junction Heart](https://www.youtube.com/watch?v=tcj8t8DYAEY)
 
+## Btooom!:
+
+1. [No Pain, No Game](https://www.youtube.com/watch?v=HK1_rPDrxK4)
+2. [Exist](https://www.youtube.com/watch?v=J5QmSt_Hmt8)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
