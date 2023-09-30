@@ -743,6 +743,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 
+## The Gene of AI:
+
+1. [No Frontier](https://www.youtube.com/watch?v=s85OgKqP3eQ)
+
 ## The Heroic Legend of Arslan:
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
@@ -751,6 +755,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Legendary Hero Is Dead!:
 
 1. [I'm Dead!](https://www.youtube.com/watch?v=NkHt-wt1Ih0)
+
+## The Masterful Cat Is Depressed Again Today:
+
+1. [Fortune Comes To A Worried House](https://www.youtube.com/watch?v=2x9AtqOJCvY)
 
 ## Top Secret: The Revelation:
 
