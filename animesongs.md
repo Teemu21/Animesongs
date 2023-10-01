@@ -1,4 +1,3 @@
-
 # Anime Opening Song Playlist
 
 ## By Teemu Koskinen
@@ -235,6 +234,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Bleach: Thousand-Year Blood War:
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
+2. [Stars](https://www.youtube.com/watch?v=hgNm_8qY27Q)
 
 ## Blood:
 
