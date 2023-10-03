@@ -285,6 +285,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [No Pain, No Game](https://www.youtube.com/watch?v=HK1_rPDrxK4)
 2. [Exist](https://www.youtube.com/watch?v=J5QmSt_Hmt8)
 
+## Buddy Complex:
+
+1. [Unisonia](https://www.youtube.com/watch?v=TOA5XH8SmFE)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
