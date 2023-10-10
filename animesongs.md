@@ -191,6 +191,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Disorder](https://www.youtube.com/watch?v=p9FeuULdZf0)
 
+## Black Blood Brothers:
+
+1. [Memories Of Tomorrow](https://www.youtube.com/watch?v=x_LKV-WtNYs)
+
 ## Black Clover:
 
 1. [Faraway Future](https://www.youtube.com/watch?v=75rCnz7_whs) 
