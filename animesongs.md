@@ -698,6 +698,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fanfare](https://www.youtube.com/watch?v=kau-MRoDh1c)
 
+## Reign Of The Seven Spellblades:
+
+1. [Sword Flower](https://www.youtube.com/watch?v=mJRpV-Pz-1M)
+
 ## Requiem of the Rose King:
 
 1. [I'm Obsessed With Roses](https://www.youtube.com/watch?v=tqm6cVPG0jU)
