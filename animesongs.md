@@ -93,10 +93,16 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
 
-## AMAIM Warrior at the Borderline:
+## AMAIM: Warrior at the Borderline:
+
+### AMAIM: Warrior at the Borderline:
 
 1. [Enemy](https://www.youtube.com/watch?v=KEJIc-wvecg)
 2. [Overload](https://www.youtube.com/watch?v=0togaduimw8)
+
+### AMAIM: Warrior at the Borderline UltraSteel Ogre-Gear:
+
+1. [Towards The Direction Where The Voice Is Calling Me (own translation)](https://www.youtube.com/watch?v=XIq7QuBK9PI)
 
 ## Angel Beats!:
 
