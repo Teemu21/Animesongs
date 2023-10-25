@@ -244,7 +244,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Bleach: Thousand-Year Blood War:
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
-2. [Stars](https://www.youtube.com/watch?v=hgNm_8qY27Q)
+2. [Stars](https://www.youtube.com/watch?v=wmdLiRhRzTU)
 
 ## Blood:
 
@@ -509,11 +509,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Level 1 Demon Lord and One Room Hero:
 
-1. [One Room Adventure](https://www.youtube.com/watch?v=f3qgd4sijQk)
+1. [One Room Adventure](https://www.youtube.com/watch?v=CDV0w9uB1c4)
 
 ## Liar Liar:
 
-1. [Lies Goes On](https://www.youtube.com/watch?v=UH-Cn5Hvhik)
+1. [Lies Goes On](https://www.youtube.com/watch?v=dKhOAEUVHuA)
 
 ## Martian Successor Nadesico:
 
@@ -605,6 +605,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [ReRise](https://www.youtube.com/watch?v=mR7IZCkS_j4)
 2. [Question](https://www.youtube.com/watch?v=F4DQ4c8_tHA)
+
+#### Gundam Build Metaverse:
+
+1. [Light And Wind](https://www.youtube.com/watch?v=9vHxi5e-BYc)
 
 ### Mobile Suit Gundam: Iron-Blooded Orphans:
 
@@ -706,7 +710,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Reign Of The Seven Spellblades:
 
-1. [Sword Flower](https://www.youtube.com/watch?v=mJRpV-Pz-1M)
+1. [Sword Flower](https://www.youtube.com/watch?v=ERlOu5tnLXo)
 
 ## Requiem of the Rose King:
 
