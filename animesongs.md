@@ -393,6 +393,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [My Dearest](https://www.youtube.com/watch?v=ZPt9w-p6q9I)
 2. [The Everlasting Guilty Crown](https://www.youtube.com/watch?v=-p0IjnBhG10)
 
+## Haganai: I Don't Have Many Friends:
+
+1. [The Regrettable Neighbours Club ★★☆](https://www.youtube.com/watch?v=3blJbjEp30U)
+2. [Be My Friend](https://www.youtube.com/watch?v=izf7r4mBiKM)
+
 ## Handyman Saitou in Another World:
 
 1. [Kaleidoscope](https://www.youtube.com/watch?v=onSsO_ysI9w)
