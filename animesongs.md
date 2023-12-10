@@ -123,7 +123,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Arknights: Prelude To Dawn:
 
-1. [Alive](https://www.youtube.com/watch?v=gCCNXUrCsys)
+1. [Alive](https://www.youtube.com/watch?v=KZFv7xN9nJQ)
 
 ## Arpeggio of Blue Steel -Ars Nova-:
 
