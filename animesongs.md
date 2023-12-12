@@ -518,7 +518,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Liar Liar:
 
-1. [Lies Goes On](https://www.youtube.com/watch?v=dKhOAEUVHuA)
+1. [Lies Goes On](https://www.youtube.com/watch?v=hxn0GVrBc48)
 
 ## Martian Successor Nadesico:
 
