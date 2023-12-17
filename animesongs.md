@@ -193,6 +193,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
 2. [Sacrifice](https://www.youtube.com/watch?v=kM9__x5Bd8c)
 
+## Berserk Of Gluttony:
+
+1. [Jekyll & Hyde](https://www.youtube.com/watch?v=zRzjBBKV_zQ)
+
 ## Big Order:
 
 1. [Disorder](https://www.youtube.com/watch?v=p9FeuULdZf0)
