@@ -738,6 +738,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Duvet](https://www.youtube.com/watch?v=C7aCInI-g10)
 
+## Shy:
+
+1. [Shiny Girl](https://www.youtube.com/watch?v=hom0lTVsCYw)
+
 ## Sorcerer Hunters:
 
 1. [What's Up Guys?](https://www.youtube.com/watch?v=_QZq8Dd0ajU)
