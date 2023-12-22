@@ -410,6 +410,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Innocent Arrogance](https://www.youtube.com/watch?v=YVtXn2bFIls)
 
+## Helck:
+
+1. [It's My Soul](https://www.youtube.com/watch?v=0PvwkX5SMbg)
+2. [Help](https://www.youtube.com/watch?v=ypVAo1cxuOc)
+
 ## Hell's Paradise:
 
 1. [Work](https://www.youtube.com/watch?v=6rgx5a1Wr8k)
@@ -430,6 +435,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Turnabout Drama](https://www.youtube.com/watch?v=_VwpWpA17Ho)
 
+## I'm Giving the Disgraced Noble Lady I Rescued a Crash Course in Naughtiness:
+
+1. [Naughty Etranger](https://www.youtube.com/watch?v=aqODDCaomOQ)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
@@ -443,6 +452,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
 2. [Vivid Vice](https://www.youtube.com/watch?v=xGwvnP_P-98)
+
+## KamiErabi GOD.app:
+
+1. [Scrap & Build](https://www.youtube.com/watch?v=OK1b-lifhBo)
 
 ## King's Raid: Successors of the Will:
 
@@ -671,6 +684,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
 
+## My Daughter Left the Nest and Returned an S-Rank Adventurer:
+
+1. [Flash Of Light](https://www.youtube.com/watch?v=aoluUL5DQ24)
+
 ## My Happy Marriage:
 
 1. [By Your Side.](https://www.youtube.com/watch?v=uBHVOO1YIm4)
@@ -777,6 +794,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Here](https://www.youtube.com/watch?v=D2xIzFw5W_E)
 2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
+4. [Lineage Put To Sleep](https://www.youtube.com/watch?v=KXnbJj6wCIo)
 
 ## The Gene of AI:
 
