@@ -31,6 +31,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fragments Of Scarlet](https://www.youtube.com/watch?v=OINW8ObizhY)
 
+## 16bit Sensation: Another Layer:
+
+1. [65535](https://www.youtube.com/watch?v=6xXu0cneaSY)
+
 ## 7 Seeds:
 
 1. [Ark](https://www.youtube.com/watch?v=5ACZhp5YuSc)
@@ -64,7 +68,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
 5. [Final Phase](https://www.youtube.com/watch?v=Leq8J0E2TQ0)
-6. [Dual Existence](https://www.youtube.com/watch?v=tFsppE4C6vg)
+6. [Dual Existence](https://www.youtube.com/watch?v=cAnqEND85Nk)
 
 ### A Certain Scientific Accelerator:
 
@@ -318,9 +322,14 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
 5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
 
+## Dark Gathering:
+
+1. [Afterlife](https://www.youtube.com/watch?v=YsnEac6_TYY)
+
 ## Dead Mount Death Play:
 
 1. [Nero](https://www.youtube.com/watch?v=5kkY3WxiPnA)
+2. [Scrap Art](https://www.youtube.com/watch?v=8inObX_M7Ks)
 
 ## Death Note:
 
@@ -452,6 +461,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
 2. [Vivid Vice](https://www.youtube.com/watch?v=xGwvnP_P-98)
+3. [Where Our Blue Is](https://www.youtube.com/watch?v=2c_lHmkOq0E)
+4. [Specialz](https://www.youtube.com/watch?v=ldEzCnE89a4)
 
 ## KamiErabi GOD.app:
 
@@ -788,6 +799,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Synduality: Noir:
 
 1. [Raytracer](https://www.youtube.com/watch?v=AjfxBiqROso)
+
+## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
+
+1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=h3t6osnyPWI)
 
 ## The Ancient Magus' Bride:
 
