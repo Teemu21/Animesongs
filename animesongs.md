@@ -832,6 +832,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fortune Comes To A Worried House](https://www.youtube.com/watch?v=2x9AtqOJCvY)
 
+## The Vexations of a Shut-In Vampire Princess:
+
+1. [Red Liberation](https://www.youtube.com/watch?v=d62GvsOTaio)
+
 ## Top Secret: The Revelation:
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
