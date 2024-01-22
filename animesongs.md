@@ -74,6 +74,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Shadow Is The Light](https://www.youtube.com/watch?v=7LVI1VVc7Cc)
 
+## Air:
+
+1. [Bird's Song](https://www.youtube.com/watch?v=epc3hVbVMNw)
+
 ## Ajin:
 
 1. [Can You Sleep At Night?](https://www.youtube.com/watch?v=Ppl21c_zKo8)
@@ -600,7 +604,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Invoke](https://www.youtube.com/watch?v=MhtKS45ANAs)
 2. [Moment](https://www.youtube.com/watch?v=TjgeLBxc7Fk)
-3. [Believe](https://www.youtube.com/watch?v=lhlHc56HgUo)
+3. [Believe](https://www.youtube.com/watch?v=BgaIoM0T3cQ)
 4. [Realize](https://www.youtube.com/watch?v=vbJrVUHpT4Y)
 
 ### Mobile Suit Gundam: Seed Destiny:
