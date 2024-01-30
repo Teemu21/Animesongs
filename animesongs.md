@@ -421,7 +421,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Heavenly Delusion:
 
-1. [Innocent Arrogance](https://www.youtube.com/watch?v=YVtXn2bFIls)
+1. [Innocent Arrogance](https://www.youtube.com/watch?v=9NmIIwY3hVI)
 
 ## Helck:
 
@@ -430,7 +430,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Hell's Paradise:
 
-1. [Work](https://www.youtube.com/watch?v=6rgx5a1Wr8k)
+1. [Work](https://www.youtube.com/watch?v=Qxqly3Dtl_w)
 
 ## Heroic Age:
 
@@ -721,7 +721,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Otaku Elf:
 
-1. [Strange Romance](https://www.youtube.com/watch?v=Bw-XfRXqAPI)
+1. [Strange Romance](https://www.youtube.com/watch?v=c8mJrbYdMWw)
 
 ## Outlaw Star:
 
