@@ -67,8 +67,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Level-5 Judgelight](https://www.youtube.com/watch?v=C9UIm-j-OD0)
 3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
-5. [Final Phase](https://www.youtube.com/watch?v=Leq8J0E2TQ0)
-6. [Dual Existence](https://www.youtube.com/watch?v=cAnqEND85Nk)
+5. [Final Phase](https://www.youtube.com/watch?v=gQ91NaeO2To)
+6. [Dual Existence](https://www.youtube.com/watch?v=sMvCMhIgQQQ)
 
 ### A Certain Scientific Accelerator:
 
@@ -82,7 +82,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Can You Sleep At Night?](https://www.youtube.com/watch?v=Ppl21c_zKo8)
 2. [Insisting That I'm Me](https://www.youtube.com/watch?v=-QLU453h4Po)
-3. [The End Of Escape](https://www.youtube.com/watch?v=FKAdmgB--Yk)
+3. [The End Of Escape](https://www.youtube.com/watch?v=r4bw2_iNP3g)
 
 ## Akame ga Kill:
 
