@@ -68,7 +68,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
 5. [Final Phase](https://www.youtube.com/watch?v=gQ91NaeO2To)
-6. [Dual Existence](https://www.youtube.com/watch?v=sMvCMhIgQQQ)
+6. [Dual Existence](https://www.youtube.com/watch?v=mtBGt4ghlxk)
 
 ### A Certain Scientific Accelerator:
 
@@ -310,6 +310,14 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Buddy Complex:
 
 1. [Unisonia](https://www.youtube.com/watch?v=TOA5XH8SmFE)
+
+## Bungou Stray Dogs:
+
+1. [Trash Candy](https://www.youtube.com/watch?v=qK54i74Jdxc)
+2. [Reason Living](https://www.youtube.com/watch?v=Ham5vwN8o8k)
+3. [A Moment's Love](https://www.youtube.com/watch?v=el5SMqoWmfU)
+4. [True Story](https://www.youtube.com/watch?v=dlQ375Ryj3k)
+5. [Iron Cell](https://www.youtube.com/watch?v=7qHp4HFjurU)
 
 ## Chainsaw Man:
 
