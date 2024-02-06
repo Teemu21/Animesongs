@@ -203,7 +203,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Berserk Of Gluttony:
 
-1. [Jekyll & Hyde](https://www.youtube.com/watch?v=zRzjBBKV_zQ)
+1. [Jekyll & Hyde](https://www.youtube.com/watch?v=KaZkcxebysI)
 
 ## Big Order:
 
