@@ -319,6 +319,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 4. [True Story](https://www.youtube.com/watch?v=dlQ375Ryj3k)
 5. [Iron Cell](https://www.youtube.com/watch?v=7qHp4HFjurU)
 
+## Burn-Up:
+
+### Burn-Up W:
+
+1. [Flash Your Dream](https://www.youtube.com/watch?v=454A6S3tFyM)
+
 ## Chainsaw Man:
 
 1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
