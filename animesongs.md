@@ -296,7 +296,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Brain Powerd:
 
-1. [In My Dream](https://www.youtube.com/watch?v=TQiVShgRiG8)
+1. [In My Dream](https://www.youtube.com/watch?v=Fd4y68ASu2I)
 
 ## Broken Blade:
 
