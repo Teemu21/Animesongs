@@ -2,7 +2,7 @@
 
 ## By Teemu Koskinen
 
-## My MAL paska
+## My MAL
 
 Here's my MAL profile if someone's interested: [MAL completed list](https://myanimelist.net/animelist/TK21)
 
