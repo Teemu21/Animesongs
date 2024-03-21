@@ -55,7 +55,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### A Certain Magical Index:
 
 1. [PSI-Missing](https://www.youtube.com/watch?v=etCH7Mnt0Wg)
-2. [Masterpiece](https://www.youtube.com/watch?v=H1ngMbXA9eA)
+2. [Masterpiece](https://www.youtube.com/watch?v=ZvLDq21jAXU)
 3. [No Buts!](https://www.youtube.com/watch?v=EnmriaXW81Y)
 4. [See VisionS](https://www.youtube.com/watch?v=CxrGfbZBGTY)
 5. [Gravitation](https://www.youtube.com/watch?v=x23cHPtzhL4)
@@ -332,6 +332,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## C: The Money of Soul and Possibility Control:
 
 1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
+
+## Chained Soldier:
+
+1. [Dream Thread](https://www.youtube.com/watch?v=rjDvy-M3Y_E)
 
 ## Chainsaw Man:
 
