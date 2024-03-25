@@ -471,6 +471,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Instinct](https://www.youtube.com/watch?v=GxgsSYqF9-8)
 
+## Hokkaido Gals Are Super Adorable!:
+
+1. [Super Adorable Gal](https://www.youtube.com/watch?v=n3nGkvlf0sU)
+
 ## Id: Invaded:
 
 1. [Mr. Fixer](https://www.youtube.com/watch?v=gtDC6VtAk8c)
@@ -845,6 +849,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 4. [Lineage Put To Sleep](https://www.youtube.com/watch?v=KXnbJj6wCIo)
+
+## The Foolish Angel Dances with the Devil:
+
+1. [Otowa](https://www.youtube.com/watch?v=pszCCR9_8mE)
 
 ## The Gene of AI:
 
