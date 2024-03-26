@@ -746,6 +746,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Song of Love](https://www.youtube.com/watch?v=5ut-PJcQqMg)
 
+## My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me!:
+
+1. [Killer Bars](https://www.youtube.com/watch?v=K0bEVWcEvnk)
+
 ## Neon Genesis Evangelion:
 
 1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=LDqcGXTGhGM)
