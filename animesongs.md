@@ -441,6 +441,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [My Dearest](https://www.youtube.com/watch?v=ZPt9w-p6q9I)
 2. [The Everlasting Guilty Crown](https://www.youtube.com/watch?v=-p0IjnBhG10)
 
+## Gushing Over Magical Girls:
+
+1. [My Dream Girls](https://www.youtube.com/watch?v=MW1LzeQd5dQ)
+
 ## Haganai: I Don't Have Many Friends:
 
 1. [The Regrettable Neighbours Club ★★☆](https://www.youtube.com/watch?v=3blJbjEp30U)
