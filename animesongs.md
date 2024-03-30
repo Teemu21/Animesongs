@@ -895,6 +895,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Crack-Crack-Crackle](https://www.youtube.com/watch?v=3x2QN_blm5A)
 
+## Undead Unluck:
+
+1. [01](https://www.youtube.com/watch?v=-damq6jWDjc)
+2. [Love Call](https://www.youtube.com/watch?v=uy9R1VJTlhE)
+
 ## Vivy: Fluorite Eye's Song:
 
 1. [Sing My Pleasure](https://www.youtube.com/watch?v=JqN4_mufE2U)
