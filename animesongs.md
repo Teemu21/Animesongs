@@ -788,6 +788,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Connect](https://www.youtube.com/watch?v=g1vw9ftAWSc)
 
+## Ragna Crimson:
+
+2. [Cerebral Liberation](https://www.youtube.com/watch?v=iP_31jWxbyU)
+
 ## Reborn as a Vending Machine, I Now Wander the Dungeon:
 
 1. [Fanfare](https://www.youtube.com/watch?v=kau-MRoDh1c)
