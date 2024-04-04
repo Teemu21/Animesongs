@@ -599,6 +599,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Knock Out](https://www.youtube.com/watch?v=ADeEdqeq0To)
 
+## Metallic Rouge:
+
+1. [Rouge](https://www.youtube.com/watch?v=ipi0gIIe9ks)
+
 ## Mobile Suit Gundam:
 
 ### Mobile Suit Gundam: The 08th MS Team:
@@ -807,6 +811,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Romantic Killer:
 
 1. [ROMA☆KiRA](https://www.youtube.com/watch?v=Mw6dMoIRMgI)
+
+## Sengoku Youko:
+
+1. [Spark](https://www.youtube.com/watch?v=gSQE-U0skHk)
 
 ## Seraph of the End:
 
