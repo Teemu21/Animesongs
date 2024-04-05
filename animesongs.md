@@ -859,6 +859,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Raytracer](https://www.youtube.com/watch?v=AjfxBiqROso)
 
+## Tales Of Wedding Rings:
+
+1. [Lover's Eye](https://www.youtube.com/watch?v=aUCA9y4OL_Y)
+
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
 1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=h3t6osnyPWI)
