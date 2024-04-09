@@ -330,6 +330,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Show Time](https://www.youtube.com/watch?v=-Y0bIcmIEB0)
 
+## Butareba -The Story of a Man Who Turned into a Pig-:
+
+1. [The Reason I Laugh Is](https://www.youtube.com/watch?v=BWeSBXjJ02c)
+
 ## C: The Money of Soul and Possibility Control:
 
 1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
