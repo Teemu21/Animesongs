@@ -831,6 +831,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Duvet](https://www.youtube.com/watch?v=C7aCInI-g10)
 
+## Shangri-La Frontier:
+
+1. [Broken Games](https://www.youtube.com/watch?v=X_YHXdCcmVc)
+
 ## Shy:
 
 1. [Shiny Girl](https://www.youtube.com/watch?v=hom0lTVsCYw)
