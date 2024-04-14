@@ -97,6 +97,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Dash And Go!](https://www.youtube.com/watch?v=YgvgYCcFk-s)
 
+## All Purpose Cultural Cat Girl Nuku Nuku:
+
+### All Purpose Cultural Cat Girl Nuku Nuku OVA:
+
+2. [Dreaming, Hurry Up](https://www.youtube.com/watch?v=QrLqmSDxmyQ)
+
 ## Amagi Brilliant Park:
 
 1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
