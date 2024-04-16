@@ -511,6 +511,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [You Don't Have To Be Sympathetic](https://www.youtube.com/watch?v=Km_6581Ggio)
 
+## Ishura:
+
+1. [Falling Into The Carnage](https://www.youtube.com/watch?v=2m1LsDJD5qM)
+
 ## Jujutsu Kaisen:
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
