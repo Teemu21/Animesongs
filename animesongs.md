@@ -290,7 +290,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Core Pride](https://www.youtube.com/watch?v=fSks0H1wcqc)
 2. [In My World](https://www.youtube.com/watch?v=BULeNYMVn_s)
 3. [A Drop of Influence](https://www.youtube.com/watch?v=Q8DpaJ3zYjA)
-4. [Eye's Sentry](https://www.youtube.com/watch?v=SLYMIyqgPpk)
+4. [Eye's Sentry](https://www.youtube.com/watch?v=uIVmvlgm5Jo)
 
 ## Blue Gender:
 
@@ -350,7 +350,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Chainsaw Man:
 
-1. [Kick Back](https://www.youtube.com/watch?v=494STlRAn3A)
+1. [Kick Back](https://www.youtube.com/watch?v=Jp_gO3fWYHY)
 
 ## Charlotte:
 
@@ -432,7 +432,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Frieren: Beyond Journey's End:
 
-1. [Hero](https://www.youtube.com/watch?v=1xeRi8syoy4)
+1. [Hero](https://www.youtube.com/watch?v=bjDixpdHLUA)
 2. [Sunny](https://www.youtube.com/watch?v=KTH4I_mxrPo)
 
 ## Giant Beasts of Ars:
@@ -519,8 +519,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
 2. [Vivid Vice](https://www.youtube.com/watch?v=xGwvnP_P-98)
-3. [Where Our Blue Is](https://www.youtube.com/watch?v=2c_lHmkOq0E)
-4. [Specialz](https://www.youtube.com/watch?v=ldEzCnE89a4)
+3. [Where Our Blue Is](https://www.youtube.com/watch?v=HVr3KlH6NLk)
+4. [Specialz](https://www.youtube.com/watch?v=0XCm-Z9KFyE)
 
 ## KamiErabi GOD.app:
 
@@ -613,7 +613,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Mashle: Magic and Muscles:
 
 1. [Knock Out](https://www.youtube.com/watch?v=ADeEdqeq0To)
-2. [Bling-Bang-Bang-Born](https://www.youtube.com/watch?v=_b_OjkAjF0Q)
+2. [Bling-Bang-Bang-Born](https://www.youtube.com/watch?v=8Y7A8ABfhh0)
 
 ## Metallic Rouge:
 
