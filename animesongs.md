@@ -103,6 +103,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 2. [Dreaming, Hurry Up](https://www.youtube.com/watch?v=QrLqmSDxmyQ)
 
+### All Purpose Cultural Cat Girl Nuku Nuku TV:
+
+1. [Fine Colorday](https://www.youtube.com/watch?v=2GMNKy9DuKg)
+
 ## Amagi Brilliant Park:
 
 1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
