@@ -107,6 +107,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fine Colorday](https://www.youtube.com/watch?v=2GMNKy9DuKg)
 
+### All Purpose Cultural Cat Girl Nuku Nuku DASH:
+
+1. [A House Cat](https://www.youtube.com/watch?v=ROK7v_oqWfI)
+
 ## Amagi Brilliant Park:
 
 1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
