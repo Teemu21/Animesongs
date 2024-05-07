@@ -462,7 +462,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Gushing Over Magical Girls:
 
-1. [My Dream Girls](https://www.youtube.com/watch?v=MW1LzeQd5dQ)
+1. [My Dream Girls](https://www.youtube.com/watch?v=TgFQ6b4ZX0o)
 
 ## Haganai: I Don't Have Many Friends:
 
@@ -905,7 +905,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The Foolish Angel Dances with the Devil:
 
-1. [Otowa](https://www.youtube.com/watch?v=pszCCR9_8mE)
+1. [Otowa](https://www.youtube.com/watch?v=ls2I7Idc4LY)
 
 ## The Gene of AI:
 
@@ -934,7 +934,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The Witch And The Beast:
 
-1. [Soumonka](https://www.youtube.com/watch?v=-h9rO_oqzds)
+1. [Soumonka](https://www.youtube.com/watch?v=CWgs0C8C6R4)
 
 ## Top Secret: The Revelation:
 
