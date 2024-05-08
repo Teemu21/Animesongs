@@ -928,6 +928,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fortune Comes To A Worried House](https://www.youtube.com/watch?v=2x9AtqOJCvY)
 
+## The Quintessential Quintuplets:
+
+1. [Quintuplets' Feelings](https://www.youtube.com/watch?v=tF04aIba5p8)
+2. [The Shape Of Quintuplets](https://www.youtube.com/watch?v=GYZ3qCEHCd4)
+
 ## The Vexations of a Shut-In Vampire Princess:
 
 1. [Red Liberation](https://www.youtube.com/watch?v=d62GvsOTaio)
