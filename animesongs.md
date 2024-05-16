@@ -346,7 +346,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Butareba -The Story of a Man Who Turned into a Pig-:
 
-1. [The Reason I Laugh Is](https://www.youtube.com/watch?v=BWeSBXjJ02c)
+1. [The Reason I Laugh Is](https://www.youtube.com/watch?v=O_Th1vCb2UM)
 
 ## C: The Money of Soul and Possibility Control:
 
