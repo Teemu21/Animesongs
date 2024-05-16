@@ -378,7 +378,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Dead Mount Death Play:
 
 1. [Nero](https://www.youtube.com/watch?v=5kkY3WxiPnA)
-2. [Scrap Art](https://www.youtube.com/watch?v=8inObX_M7Ks)
+2. [Scrap Art](https://www.youtube.com/watch?v=iQictdIl1xk)
 
 ## Death Note:
 
