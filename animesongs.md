@@ -111,6 +111,18 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [A House Cat](https://www.youtube.com/watch?v=ROK7v_oqWfI)
 
+## Amagami SS:
+
+### Amagami SS:
+
+1. [I Love](https://www.youtube.com/watch?v=Q_v_27CyXZE)
+2. [Stay Who You Are](https://www.youtube.com/watch?v=D7IHO8LpxO4)
+3. [Check My Soul](https://www.youtube.com/watch?v=refI-9b4HZ4)
+
+### Seiren:
+
+1. [Your Flower](https://www.youtube.com/watch?v=a09bzzzN4Zo)
+
 ## Amagi Brilliant Park:
 
 1. [Extra Magic Hour](https://www.youtube.com/watch?v=v4Cq1zxMZfU)
