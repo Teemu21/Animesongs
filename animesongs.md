@@ -928,6 +928,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
 3. [Wings](https://www.youtube.com/watch?v=X708ByP_7yI) 
 
+## The Kawai Complex Guide to Manors and Hostel Behavior:
+
+1. [Someday, In Some World With You](https://www.youtube.com/watch?v=FtZvYqG1eME)
+
 ## The Kingdoms of Ruin:
 
 1. [Until It Disappears](https://www.youtube.com/watch?v=vqnQDeohrDI)
