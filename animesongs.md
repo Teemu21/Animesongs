@@ -138,6 +138,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Towards The Direction Where The Voice Is Calling Me (own translation)](https://www.youtube.com/watch?v=XIq7QuBK9PI)
 
+## An Archdemon's Dilemma: How to Love Your Elf Bride:
+
+1. [A Love I Can't Understand](https://www.youtube.com/watch?v=8QiuPPc8px4)
+
 ## Angel Beats!:
 
 1. [My Soul, Your Beats!](https://www.youtube.com/watch?v=zIFV8UUs1-c)
