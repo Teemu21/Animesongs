@@ -376,6 +376,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Kick Back](https://www.youtube.com/watch?v=Jp_gO3fWYHY)
 
+## Chaos Head:
+
+1. [F.D.D.](https://www.youtube.com/watch?v=aoUnFVsmzTs)
+
 ## Charlotte:
 
 1. [Bravely You](https://www.youtube.com/watch?v=WhRsyIGN-cA)
