@@ -569,6 +569,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fantastic Dreamer](https://www.youtube.com/watch?v=uEj8DaXWnvE)
 2. [Tomorrow](https://www.youtube.com/watch?v=a5E4_uFYFJ0)
+3. [Growing Up](https://www.youtube.com/watch?v=eL3VDqTf6Vw)
 
 ### KonoSuba: An Explosion on This Wonderful World!:
 
