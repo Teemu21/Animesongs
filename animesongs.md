@@ -883,6 +883,12 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [What's Up Guys?](https://www.youtube.com/watch?v=_QZq8Dd0ajU)
 2. [Shoot Love Hunters](https://www.youtube.com/watch?v=20QyHVgP3CE)
 
+## Steins;Gate:
+
+### Steins;Gate:
+
+1. [Hacking To The Gate](https://www.youtube.com/watch?v=SBQprWeOx8g)
+
 ## Sword Art Online:
 
 ### Sword Art Online I:
