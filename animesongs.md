@@ -305,6 +305,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Vivid](https://www.youtube.com/watch?v=Hc6Jrr_2FBA)
 
+## Blue Archive The Animation:
+
+1. [Archive Of Youth](https://www.youtube.com/watch?v=Um9JUFSFBy4)
+
 ## Blue Comet SPT Layzner:
 
 1. [Lonely Way](https://www.youtube.com/watch?v=vXMfnoJ750s)
