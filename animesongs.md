@@ -372,6 +372,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
 
+## Cat Planet Cuties:
+
+1. [Now Loading...Sky!!](https://www.youtube.com/watch?v=peChxGrXEFY)
+
 ## Chained Soldier:
 
 1. [Dream Thread](https://www.youtube.com/watch?v=rjDvy-M3Y_E)
