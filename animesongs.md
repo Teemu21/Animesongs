@@ -368,6 +368,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [The Reason I Laugh Is](https://www.youtube.com/watch?v=O_Th1vCb2UM)
 
+## Bye Bye, Earth:
+
+1. [Faceless](https://www.youtube.com/watch?v=qaZUDSjE66k)
+
 ## C: The Money of Soul and Possibility Control:
 
 1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
