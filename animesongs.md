@@ -807,6 +807,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Flash Of Light](https://www.youtube.com/watch?v=aoluUL5DQ24)
 
+## My Deer Friend Nokotan:
+
+1. [Shika-Iro Days](https://www.youtube.com/watch?v=rbZi9QVxU5M)
+
 ## My Happy Marriage:
 
 1. [By Your Side.](https://www.youtube.com/watch?v=ZZ0cTl8umGU)
