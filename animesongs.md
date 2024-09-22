@@ -1019,6 +1019,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Sing My Pleasure](https://www.youtube.com/watch?v=JqN4_mufE2U)
 2. [Galaxy Anthem](https://www.youtube.com/watch?v=nbSwgEWkM6w)
 
+## VTuber Legend: How I Went Viral after Forgetting to Turn Off My Stream:
+
+1. [Virtual Showtime!](https://www.youtube.com/watch?v=Ew0Tx1hBc4M)
+
 ## Welcome To Demon School! Iruma-kun:
 
 1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
