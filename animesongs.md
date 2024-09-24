@@ -660,6 +660,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Knock Out](https://www.youtube.com/watch?v=ADeEdqeq0To)
 2. [Bling-Bang-Bang-Born](https://www.youtube.com/watch?v=8Y7A8ABfhh0)
 
+## Mayonaka Punch:
+
+1. [Gimme Gimme](https://www.youtube.com/watch?v=wM6lPEOMkYE)
+
 ## Metallic Rouge:
 
 1. [Rouge](https://www.youtube.com/watch?v=ipi0gIIe9ks)
@@ -901,6 +905,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Shy:
 
 1. [Shiny Girl](https://www.youtube.com/watch?v=hom0lTVsCYw)
+2. [Willshine](https://www.youtube.com/watch?v=CvdaK-6aY2o)
 
 ## Sorcerer Hunters:
 
