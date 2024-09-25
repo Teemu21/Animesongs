@@ -835,6 +835,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Icy Ivy](https://www.youtube.com/watch?v=2dpF7sV1Hp4) 
 
+## No Longer Allowed in Another World:
+
+1. [Shura Diary](https://www.youtube.com/watch?v=P6PQjxYn4ds)
+
 ## Otaku Elf:
 
 1. [Strange Romance](https://www.youtube.com/watch?v=c8mJrbYdMWw)
@@ -983,6 +987,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Legendary Hero Is Dead!:
 
 1. [I'm Dead!](https://www.youtube.com/watch?v=NkHt-wt1Ih0)
+
+## The Magical Girl and the Evil Lieutenant Used to Be Archenemies:
+
+1. [Incomplete Rendezvous](https://www.youtube.com/watch?v=52azXtMQBS4)
 
 ## The Masterful Cat Is Depressed Again Today:
 
