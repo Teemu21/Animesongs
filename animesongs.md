@@ -963,6 +963,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 4. [Lineage Put To Sleep](https://www.youtube.com/watch?v=KXnbJj6wCIo)
 
+## The Elusive Samurai:
+
+1. [Plan A](https://www.youtube.com/watch?v=XEvK7h-nsVc)
+
 ## The Foolish Angel Dances with the Devil:
 
 1. [Otowa](https://www.youtube.com/watch?v=ls2I7Idc4LY)
@@ -1041,6 +1045,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
 2. [No! No! Satisfaction!](https://www.youtube.com/watch?v=JOwB4MBVfwA)
 3. [Last Minute To Ride It Out (My own translatation)](https://www.youtube.com/watch?v=3VZDhZ0v150)
+
+## Why Does Nobody Remember Me in This World?:
+
+1. [World Reincarnation](https://www.youtube.com/watch?v=fCq7OHxmXXU)
 
 ## X:
 
