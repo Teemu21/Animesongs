@@ -175,6 +175,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Star*Frost](https://www.youtube.com/watch?v=mna7Ly90YLk)
 
+## Atri: My Dear Moments:
+
+1. [That Light](https://www.youtube.com/watch?v=nldXm4norlU)
+
 ## AWOL:
 
 1. [Rocket Dive](https://www.youtube.com/watch?v=-qoVeoG8XuU)
