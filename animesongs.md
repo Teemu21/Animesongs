@@ -13,6 +13,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## [Oshi No Ko[:
 
 1. [Idol](https://www.youtube.com/watch?v=7P42Qjcl8qA)
+2. [Fatal](https://www.youtube.com/watch?v=F3g0KnjtLWQ)
 
 ## .hack//:
 
