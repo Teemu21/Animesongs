@@ -672,6 +672,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Rouge](https://www.youtube.com/watch?v=ipi0gIIe9ks)
 
+## Mission: Yozakura Family:
+
+1. [Fate](https://www.youtube.com/watch?v=TxFEkC2gdP0)
+2. [Secret Operation](https://www.youtube.com/watch?v=HM-FcKpOMsw)
+
 ## Mobile Suit Gundam:
 
 ### Mobile Suit Gundam: The 08th MS Team:
@@ -871,7 +876,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Puella Magi Madoka Magica:
 
-1. [Connect](https://www.youtube.com/watch?v=g1vw9ftAWSc)
+1. [Connect](https://www.youtube.com/watch?v=zyTcNklYrUM)
 
 ## Ragna Crimson:
 
