@@ -162,7 +162,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Arknights: Prelude To Dawn:
 
-1. [Alive](https://www.youtube.com/watch?v=KZFv7xN9nJQ)
+1. [Alive](https://www.youtube.com/watch?v=2hdNsQK4A8g)
 
 ## Arpeggio of Blue Steel -Ars Nova-:
 
@@ -525,7 +525,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Hell's Paradise:
 
-1. [Work](https://www.youtube.com/watch?v=Qxqly3Dtl_w)
+1. [Work](https://www.youtube.com/watch?v=A9vsoVBshBo)
 
 ## Heroic Age:
 
@@ -558,7 +558,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## I'm The Villainess, So I'm Taming The Final Boss:
 
-1. [You Don't Have To Be Sympathetic](https://www.youtube.com/watch?v=Km_6581Ggio)
+1. [You Don't Have To Be Sympathetic](https://www.youtube.com/watch?v=oXlEEXws3gc)
 
 ## Ishura:
 
@@ -711,6 +711,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Mobile Suit Gundam: Reconguista in G:
 
 1. [Blazing](https://www.youtube.com/watch?v=EQD8jSjWvQc)
+
+### Mobile Fighter G Gundam:
+
+2. [Trust You Forever](https://www.youtube.com/watch?v=Axb5-ZNEkRU)
 
 ### Mobile Suit Gundam: Wing:
 
