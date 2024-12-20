@@ -36,6 +36,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [65535](https://www.youtube.com/watch?v=6xXu0cneaSY)
 
+## 2.5D Seduction:
+
+1. [Shutter Chance](https://www.youtube.com/watch?v=4TjLfVLUwp4)
+2. [A Wing's Patchwork](https://www.youtube.com/watch?v=0Pig3PWgV08)
+
 ## 7 Seeds:
 
 1. [Ark](https://www.youtube.com/watch?v=5ACZhp5YuSc)
