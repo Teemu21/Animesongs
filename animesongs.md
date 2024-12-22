@@ -329,6 +329,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [In My World](https://www.youtube.com/watch?v=FYnyjFIlync)
 3. [A Drop of Influence](https://www.youtube.com/watch?v=Q8DpaJ3zYjA)
 4. [Eye's Sentry](https://www.youtube.com/watch?v=uIVmvlgm5Jo)
+5. [Re: Rescue](https://www.youtube.com/watch?v=aYz7w9Yl7eI)
 
 ## Blue Gender:
 
