@@ -1,4 +1,4 @@
-''# Anime Opening Song Playlist
+# Anime Opening Song Playlist
 
 ## By Teemu Koskinen
 
