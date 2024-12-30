@@ -41,6 +41,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Shutter Chance](https://www.youtube.com/watch?v=4TjLfVLUwp4)
 2. [A Wing's Patchwork](https://www.youtube.com/watch?v=0Pig3PWgV08)
 
+## 365 Days to the Wedding:
+
+1. [Sparkling](https://www.youtube.com/watch?v=kw0llzQGk2I)
+
 ## 7 Seeds:
 
 1. [Ark](https://www.youtube.com/watch?v=5ACZhp5YuSc)
@@ -297,6 +301,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
 2. [Stars](https://www.youtube.com/watch?v=wmdLiRhRzTU)
+3. [Without Any Words](https://www.youtube.com/watch?v=2PizhSus3hM)
 
 ## Blood:
 
@@ -426,6 +431,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Death Note:
 
 1. [The World](https://www.youtube.com/watch?v=RvIx-SJvlNY)
+
+## Demon Lord 2099:
+
+1. [Hollow](https://www.youtube.com/watch?v=bfLLFTJmUqo)
 
 ## Demon Lord Dante:
 
@@ -580,6 +589,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## KamiErabi GOD.app:
 
 1. [Scrap & Build](https://www.youtube.com/watch?v=OK1b-lifhBo)
+2. [Weathering](https://www.youtube.com/watch?v=yUBiMCgivW8)
 
 ## King's Raid: Successors of the Will:
 
@@ -920,6 +930,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Sengoku Youko:
 
 1. [Spark](https://www.youtube.com/watch?v=gSQE-U0skHk)
+2. [Katawara](https://www.youtube.com/watch?v=THWUH_zWC90)
 
 ## Seraph of the End:
 
@@ -1028,6 +1039,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fortune Comes To A Worried House](https://www.youtube.com/watch?v=2x9AtqOJCvY)
 
+## The Most Notorious "Talker" Runs the World's Greatest Clan:
+
+1. [Tactics](https://www.youtube.com/watch?v=1ivXMMdzxSc)
+
 ## The Quintessential Quintuplets:
 
 1. [Quintuplets' Feelings](https://www.youtube.com/watch?v=T-3TJgbDmVI)
@@ -1082,9 +1097,17 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
 
+## Yakuza Fiancé: Raise wa Tanin ga Ii:
+
+1. [Under And Over](https://www.youtube.com/watch?v=E_cGY4w3dn8)
+
 ## Yohane the Parhelion: Sunshine in the Mirror:
 
 1. [Reality Mysterium](https://www.youtube.com/watch?v=sHa6WzgrnzA)
+
+## You are Ms. Servant.:
+
+1. [Out of Sync](https://www.youtube.com/watch?v=R6fQrQUSfjc)
 
 ## Yuri Is My Job:
 
