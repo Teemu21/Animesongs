@@ -179,7 +179,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Assassination Classroom:
 
-3. [Question](https://www.youtube.com/watch?v=ozaVtR-KsI0)
+3. [Question](https://www.youtube.com/watch?v=6DrKJzuH7M8)
 
 ## Astra Lost In Space:
 
@@ -1033,7 +1033,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The Magical Girl and the Evil Lieutenant Used to Be Archenemies:
 
-1. [Incomplete Rendezvous](https://www.youtube.com/watch?v=52azXtMQBS4)
+1. [Incomplete Rendezvous](https://www.youtube.com/watch?v=ZmhTiLioEnI)
 
 ## The Masterful Cat Is Depressed Again Today:
 
@@ -1068,7 +1068,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Undead Unluck:
 
 1. [01](https://www.youtube.com/watch?v=-damq6jWDjc)
-2. [Love Call](https://www.youtube.com/watch?v=uy9R1VJTlhE)
+2. [Love Call](https://www.youtube.com/watch?v=EhRYyOdUiYQ)
 
 ## Unnamed Memory:
 
@@ -1099,7 +1099,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Yakuza Fiancé: Raise wa Tanin ga Ii:
 
-1. [Under And Over](https://www.youtube.com/watch?v=E_cGY4w3dn8)
+1. [Under And Over](https://www.youtube.com/watch?v=yvLcHpVYAkE)
 
 ## Yohane the Parhelion: Sunshine in the Mirror:
 
