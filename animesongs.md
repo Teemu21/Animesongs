@@ -13,7 +13,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## [Oshi No Ko[:
 
 1. [Idol](https://www.youtube.com/watch?v=7P42Qjcl8qA)
-2. [Fatal](https://www.youtube.com/watch?v=F3g0KnjtLWQ)
+2. [Fatal](https://www.youtube.com/watch?v=4u2Ywmfx3Ek)
 
 ## .hack//:
 
@@ -301,7 +301,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Scar](https://www.youtube.com/watch?v=pb_fwnVamdI)
 2. [Stars](https://www.youtube.com/watch?v=wmdLiRhRzTU)
-3. [Without Any Words](https://www.youtube.com/watch?v=2PizhSus3hM)
+3. [Without Any Words](https://www.youtube.com/watch?v=4yZU5jKRkDc)
 
 ## Blood:
 
@@ -410,7 +410,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Charlotte:
 
-1. [Bravely You](https://www.youtube.com/watch?v=WhRsyIGN-cA)
+1. [Bravely You](https://www.youtube.com/watch?v=ZlScoN57QCE)
 
 ## Code Geass:
 
@@ -418,6 +418,16 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [Impossible to Decipher](https://www.youtube.com/watch?v=6sLZCJTh9dY)<br>
 3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
 5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
+
+## Comic Party:
+
+### Comic Party:
+
+1. [Stay Who You Are](https://www.youtube.com/watch?v=oboo3KPazNk)
+
+### Comic Party Revolution:
+
+1. [Fly](https://www.youtube.com/watch?v=_qw9LXK4mCw)
 
 ## Dark Gathering:
 
@@ -844,6 +854,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Hanamonogatari:
 
 1. [The Last Day Of My Adolescence](https://www.youtube.com/watch?v=360c_SkOByI)
+
+### Monogatari Series: Off & Monster Season:
+
+1. [Caramel Ribbon Cursetard](https://www.youtube.com/watch?v=P8FQz8r4Y3Q)
 
 ## My Daughter Left the Nest and Returned an S-Rank Adventurer:
 
