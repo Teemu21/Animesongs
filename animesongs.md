@@ -168,6 +168,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Flare](https://www.youtube.com/watch?v=zrJ4hqF_Evg)
 2. [Daylight](https://www.youtube.com/watch?v=i4J_aRQ21Bo)
+3. [Unending Wish](https://www.youtube.com/watch?v=DItBdUlrBuA)
+4. [Compass](https://www.youtube.com/watch?v=g6XMgh04z9A)
 
 ## Arknights: Prelude To Dawn:
 
