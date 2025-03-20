@@ -75,7 +75,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Only My Railgun](https://www.youtube.com/watch?v=ZhIxg6_Femo)
 2. [Level-5 Judgelight](https://www.youtube.com/watch?v=C9UIm-j-OD0)
-3. [Sister's Noise](https://www.youtube.com/watch?v=w-Zkud-_9JQ)
+3. [Sister's Noise](https://www.youtube.com/watch?v=e6g3mkqhFzo)
 4. [Eternal Reality](https://www.youtube.com/watch?v=3g-0C9ywxzA)
 5. [Final Phase](https://www.youtube.com/watch?v=gQ91NaeO2To)
 6. [Dual Existence](https://www.youtube.com/watch?v=mtBGt4ghlxk)
@@ -235,6 +235,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2\. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)<br>
 3\. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)<br>
 5\. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
+
+## Beheneko: The Elf-Girl's Cat is Secretly an S-Ranked Monster!:
+
+1. [Supreme Heart](https://www.youtube.com/watch?v=_XXP1kuFpVs)
 
 ## Berserk:
 
@@ -630,8 +634,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Kuromukuro:
 
-1. [Deathtopia](https://www.youtube.com/watch?v=0PI4C-xRs8M)
-2. [Accelerated Destiny (my own translation)](https://www.youtube.com/watch?v=NlR1ytMY7rA)
+1. [Deathtopia](https://www.youtube.com/watch?v=OwRM6BNfHvw)
+2. [Accelerated Destiny](https://www.youtube.com/watch?v=Y87HS_BM2Zc)
 
 ## Last Hope:
 
@@ -698,7 +702,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Mashle: Magic and Muscles:
 
-1. [Knock Out](https://www.youtube.com/watch?v=ADeEdqeq0To)
+1. [Knock Out](https://www.youtube.com/watch?v=qVW1dmBbH6s)
 2. [Bling-Bang-Bang-Born](https://www.youtube.com/watch?v=8Y7A8ABfhh0)
 
 ## Mayonaka Punch:
