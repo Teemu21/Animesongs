@@ -1072,6 +1072,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Quintuplets' Feelings](https://www.youtube.com/watch?v=T-3TJgbDmVI)
 2. [The Shape Of Quintuplets](https://www.youtube.com/watch?v=GYZ3qCEHCd4)
 3. [Quintuplets' Future](https://www.youtube.com/watch?v=rG5I0poI43I)
+4. [Quintuplets' Smiles](https://www.youtube.com/watch?v=6Mn16GY9Syw)
 
 ## The Vexations of a Shut-In Vampire Princess:
 
