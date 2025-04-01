@@ -1086,6 +1086,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
 
+## Tying the Knot with an Amagami Sister:
+
+1. [Softly in Love -May We Always Be Us](https://www.youtube.com/watch?v=WUVj69N68Xc)
+2. [Pray Pray Pray](https://www.youtube.com/watch?v=3FhVAfwpdQk)
+
 ## Undead Girl Murder Farce:
 
 1. [Crack-Crack-Crackle](https://www.youtube.com/watch?v=3x2QN_blm5A)
