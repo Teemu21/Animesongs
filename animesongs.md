@@ -572,7 +572,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## I'm Getting Married to a Girl I Hate in My Class:
 
-1. [More Than Lovers, Less Than Love](https://www.youtube.com/watch?v=vd87sHFzSsg)
+1. [More Than Lovers, Less Than Love](https://www.youtube.com/watch?v=zjCKAPSHR3Q)
 
 ## I'm Giving the Disgraced Noble Lady I Rescued a Crash Course in Naughtiness:
 
