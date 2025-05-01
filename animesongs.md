@@ -12,7 +12,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## [Oshi No Ko[:
 
-1. [Idol](https://www.youtube.com/watch?v=7P42Qjcl8qA)
+1. [Idol](https://www.youtube.com/watch?v=JxvvUblf25A)
 2. [Fatal](https://www.youtube.com/watch?v=4u2Ywmfx3Ek)
 
 ## .hack//:
@@ -511,6 +511,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Hero](https://www.youtube.com/watch?v=bjDixpdHLUA)
 2. [Sunny](https://www.youtube.com/watch?v=KTH4I_mxrPo)
 
+## From Bureaucrat to Villainess: Dad's Been Reincarnated!:
+
+1. [Choose!!!](https://www.youtube.com/watch?v=QFA6GwWKJTQ)
+
 ## Giant Beasts of Ars:
 
 1. [Morphing Existence](https://www.youtube.com/watch?v=Qtm04acV7RA)
@@ -603,7 +607,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Cycle of Mystery](https://www.youtube.com/watch?v=i1P-9IspBus)
 2. [Vivid Vice](https://www.youtube.com/watch?v=xGwvnP_P-98)
-3. [Where Our Blue Is](https://www.youtube.com/watch?v=HVr3KlH6NLk)
+3. [Where Our Blue Is](https://www.youtube.com/watch?v=2c_lHmkOq0E)
 4. [Specialz](https://www.youtube.com/watch?v=0XCm-Z9KFyE)
 
 ## KamiErabi GOD.app:
@@ -989,7 +993,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Sword Art Online I:
 
-1. [Crossing Field](https://www.youtube.com/watch?v=e3vsQZbgz_Y)
+1. [Crossing Field](https://www.youtube.com/watch?v=e17EPXjaetM)
 2. [Innocence](https://www.youtube.com/watch?v=Sd7xZ2SdyQk)
 
 ### Sword Art Online II:
