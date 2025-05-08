@@ -1,4 +1,4 @@
-# Anime Opening Song Playlist
+''# Anime Opening Song Playlist
 
 ## By Teemu Koskinen
 
@@ -1033,6 +1033,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [You](https://www.youtube.com/watch?v=bmbwBgNpCQ8)
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 4. [Lineage Put To Sleep](https://www.youtube.com/watch?v=KXnbJj6wCIo)
+
+## The Blue Wolves of Mibu:
+
+1. [Blue](https://www.youtube.com/watch?v=G6lDZjnmY2k)
 
 ## The Elusive Samurai:
 
