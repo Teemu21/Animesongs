@@ -603,6 +603,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Turnabout Drama](https://www.youtube.com/watch?v=_VwpWpA17Ho)
 
+## I May Be a Guild Receptionist, but I'll Solo Any Boss to Clock Out on Time:
+
+1. [Perfect Day](https://www.youtube.com/watch?v=JMUmNoUQvcA)
+
 ## Ishura:
 
 1. [Falling Into The Carnage](https://www.youtube.com/watch?v=2m1LsDJD5qM)
