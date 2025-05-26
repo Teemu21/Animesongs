@@ -1,4 +1,4 @@
-''# Anime Opening Song Playlist
+# Anime Opening Song Playlist
 
 ## By Teemu Koskinen
 
@@ -586,6 +586,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Naughty Etranger](https://www.youtube.com/watch?v=aqODDCaomOQ)
 
+## I'm Living with an Otaku NEET Kunoichi!?:
+
+1. [Neet In Jam](https://www.youtube.com/watch?v=cVH6giJ_2N8)
+
 ## I'm Standing on a Million Lives:
 
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
@@ -1030,6 +1034,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
 1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=h3t6osnyPWI)
+2. [Thanks for Being So Lovable](https://www.youtube.com/watch?v=Fhi9r_SNyBs)
 
 ## The Ancient Magus' Bride:
 
@@ -1041,6 +1046,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Blue Wolves of Mibu:
 
 1. [Blue](https://www.youtube.com/watch?v=G6lDZjnmY2k)
+
+## The Daily Life of a Middle-Aged Online Shopper in Another World:
+
+1. [Give & Take](https://www.youtube.com/watch?v=6mY9evpcEhI)
 
 ## The Elusive Samurai:
 
@@ -1097,6 +1106,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Witch And The Beast:
 
 1. [Soumonka](https://www.youtube.com/watch?v=CWgs0C8C6R4)
+
+## They Are My Noble Masters:
+
+1. [Just Five Seconds To Kneel!](https://www.youtube.com/watch?v=grycJjw7Xn4)
 
 ## Top Secret: The Revelation:
 
