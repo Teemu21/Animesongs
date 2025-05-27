@@ -510,6 +510,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Super ☆ Affection](https://www.youtube.com/watch?v=X3aKe8n6NLo)
 
+## Flower and Asura:
+
+1. [My Own Revolution](https://www.youtube.com/watch?v=loSfbJXBjN4)
+
 ## Frieren: Beyond Journey's End:
 
 1. [Hero](https://www.youtube.com/watch?v=bjDixpdHLUA)
@@ -728,6 +732,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Mayonaka Punch:
 
 1. [Gimme Gimme](https://www.youtube.com/watch?v=wM6lPEOMkYE)
+
+## Medaka Kuroiwa is Impervious to My Charms:
+
+1. [Heart-Fluttering Rainy Love Pattern](https://www.youtube.com/watch?v=VK58vWsP-2Y)
 
 ## Metallic Rouge:
 
