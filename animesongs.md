@@ -557,6 +557,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Kaleidoscope](https://www.youtube.com/watch?v=onSsO_ysI9w)
 
+## Headhunted to Another World: From Salaryman to Big Four!:
+
+1. [Concerto for Another World](https://www.youtube.com/watch?v=PWNnJeaTgsw)
+
 ## Heavenly Delusion:
 
 1. [Innocent Arrogance](https://www.youtube.com/watch?v=9NmIIwY3hVI)
@@ -618,6 +622,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Ishura:
 
 1. [Falling Into The Carnage](https://www.youtube.com/watch?v=2m1LsDJD5qM)
+2. [True Peak](https://www.youtube.com/watch?v=RyClqesP_RA)
 
 ## Jujutsu Kaisen:
 
@@ -1053,7 +1058,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The Blue Wolves of Mibu:
 
-1. [Blue](https://www.youtube.com/watch?v=G6lDZjnmY2k)
+1. [Blue](https://www.youtube.com/watch?v=Zh8xiGagKSA)
 
 ## The Daily Life of a Middle-Aged Online Shopper in Another World:
 
@@ -1139,7 +1144,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Unnamed Memory:
 
-1. [Call](https://www.youtube.com/watch?v=JoVvFXWVQ5o)
+1. [Call](https://www.youtube.com/watch?v=lMSi-_XZDPI)
 
 ## Vivy: Fluorite Eye's Song:
 
@@ -1155,6 +1160,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Magical Babyrinth](https://www.youtube.com/watch?v=KisYQmwMNiQ)
 2. [No! No! Satisfaction!](https://www.youtube.com/watch?v=JOwB4MBVfwA)
 3. [Last Minute To Ride It Out (My own translatation)](https://www.youtube.com/watch?v=3VZDhZ0v150)
+
+## Welcome to Japan, Ms. Elf!:
+
+1. [Palette Days](https://www.youtube.com/watch?v=qifbo1Vqae0)
 
 ## Why Does Nobody Remember Me in This World?:
 
