@@ -1145,6 +1145,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Unnamed Memory:
 
 1. [Call](https://www.youtube.com/watch?v=lMSi-_XZDPI)
+2. [Unsung Ballad](https://www.youtube.com/watch?v=Y6H0i7cWV2s)
 
 ## Vivy: Fluorite Eye's Song:
 
