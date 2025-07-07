@@ -617,7 +617,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## I May Be a Guild Receptionist, but I'll Solo Any Boss to Clock Out on Time:
 
-1. [Perfect Day](https://www.youtube.com/watch?v=JMUmNoUQvcA)
+1. [Perfect Day](https://www.youtube.com/watch?v=djKkcJVKAbE)
 
 ## Ishura:
 
@@ -1190,3 +1190,6 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Secret♡Melody](https://www.youtube.com/watch?v=u9KcPfDiK2k)
 
+## Zenshu:
+
+1. [Zen](https://www.youtube.com/watch?v=iRjRX1V_3go)
