@@ -918,6 +918,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Killer Bars](https://www.youtube.com/watch?v=K0bEVWcEvnk)
 
+## Myself;Yourself:
+
+1. [Tears Infection](https://www.youtube.com/watch?v=o3retp5zsRk)
+ 
 ## Neon Genesis Evangelion:
 
 1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=LDqcGXTGhGM)
