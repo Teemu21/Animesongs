@@ -1048,6 +1048,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Lover's Eye](https://www.youtube.com/watch?v=nBa-ima6rmI)
 
+## Tasokare Hotel:
+
+1. [Tasokare](https://www.youtube.com/watch?v=vDy_V3i1YpE)
+
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
 1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=h3t6osnyPWI)
