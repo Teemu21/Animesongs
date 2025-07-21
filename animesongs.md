@@ -740,7 +740,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Medaka Kuroiwa is Impervious to My Charms:
 
-1. [Heart-Fluttering Rainy Love Pattern](https://www.youtube.com/watch?v=VK58vWsP-2Y)
+1. [Heart-Fluttering Rainy Love Pattern](https://www.youtube.com/watch?v=td0eO78wxSI)
 
 ## Metallic Rouge:
 
@@ -1193,6 +1193,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## You are Ms. Servant.:
 
 1. [Out of Sync](https://www.youtube.com/watch?v=R6fQrQUSfjc)
+
+## YU-NO: A Girl Who Chants Love at the Bound of This World:
+
+1. [A Girl Who Chants Love at the Bound of This World](https://www.youtube.com/watch?v=E72ivJl0JcY)
+2. [Mother](https://www.youtube.com/watch?v=vcoYbdMXZz8)
 
 ## Yuri Is My Job:
 
