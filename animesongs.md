@@ -191,6 +191,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Star*Frost](https://www.youtube.com/watch?v=mna7Ly90YLk)
 
+## A Terrified Teacher at Ghoul School!:
+
+1. [Shrimp Turn!](https://www.youtube.com/watch?v=CP-pFGAuPJY)
+2. [A Heart That Seems To Change](https://www.youtube.com/watch?v=FC2KjtggGD4)
+
 ## Atri: My Dear Moments:
 
 1. [That Light](https://www.youtube.com/watch?v=nldXm4norlU)
@@ -725,6 +730,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Order Made](https://www.youtube.com/watch?v=l4fmZBIk-ps)
 
+## Makina-san's a Love Bot?!:
+
+1. [At Home, Yeah! Age Tiger](https://www.youtube.com/watch?v=Z3Ws78f2VVE)
+
 ## Martian Successor Nadesico:
 
 1. [You Get To Burning!](https://www.youtube.com/watch?v=lF8r7PO19vQ)
@@ -852,6 +861,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [The Blessings](https://www.youtube.com/watch?v=tveOc7BWqq8)
 2. [Slash](https://www.youtube.com/watch?v=QiNTwU3O7HI)
 
+### Mobile Suit Gundam: GQuuuuuuX:
+
+1. [Plazma](https://www.youtube.com/watch?v=OH5--LRqnmM)
+
 ## Monogatari Series:
 
 ### Nekomonogatari Black:
@@ -951,6 +964,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Planetes:
 
 1. [Dive In The Sky](https://www.youtube.com/watch?v=nC6BX5niR5I)
+
+## Please Put Them On, Takamine-san:
+
+1. [Baby Baby Baby](https://www.youtube.com/watch?v=WAMgEHN1Dnk)
 
 ## Pseudo Harem:
 
@@ -1140,6 +1157,18 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Softly in Love -May We Always Be Us](https://www.youtube.com/watch?v=WUVj69N68Xc)
 2. [Pray Pray Pray](https://www.youtube.com/watch?v=3FhVAfwpdQk)
+
+## Uma Musume:
+
+### Uma Musume: Pretty Derby:
+
+1. [Make Debut!](https://www.youtube.com/watch?v=aT34-Ctxf_M)
+2. [Run for Our Dreams!](https://www.youtube.com/watch?v=OoI_bCNVORQ)
+3. [Be Their Beloved](https://www.youtube.com/watch?v=RlIVwRYUMhA)
+
+### Uma Musume: Pretty Derby - Road to the Top:
+
+1. [Glorious Moment!](https://www.youtube.com/watch?v=SPwn8i-PXQA)
 
 ## Undead Girl Murder Farce:
 
