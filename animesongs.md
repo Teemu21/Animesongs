@@ -152,6 +152,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Scope](https://www.youtube.com/watch?v=beUYeggwk8Y)
 
+## A Ninja and an Assassin Under One Roof:
+
+1. [Shall We Do It? Endless](https://www.youtube.com/watch?v=XkOhgz3nt2c)
+
 ## An Archdemon's Dilemma: How to Love Your Elf Bride:
 
 1. [A Love I Can't Understand](https://www.youtube.com/watch?v=8QiuPPc8px4)
@@ -402,10 +406,15 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Bye Bye, Earth:
 
 1. [Faceless](https://www.youtube.com/watch?v=qaZUDSjE66k)
+2. [Aufheben](https://www.youtube.com/watch?v=rIHkmmvzRqs)
 
 ## C: The Money of Soul and Possibility Control:
 
 1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
+
+## Can a Boy-Girl Friendship Survive?:
+
+1. [Question: What is Love?](https://www.youtube.com/watch?v=xLnVa6BY2Cg)
 
 ## Cat Planet Cuties:
 
@@ -518,6 +527,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Flower and Asura:
 
 1. [My Own Revolution](https://www.youtube.com/watch?v=loSfbJXBjN4)
+
+## Food For The Soul:
+
+1. [That's The Way It Goes](https://www.youtube.com/watch?v=ZvACtwDjsJw)
 
 ## Frieren: Beyond Journey's End:
 
@@ -711,7 +724,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### The Galaxy Railways:
 
-1. [Galaxy Railways in Spring (my own translation)](https://www.youtube.com/watch?v=VtxdNd9lIMQ)
+1. [Galaxy Railways in Spring](https://www.youtube.com/watch?v=Xj2P8jACQXQ)
 2. [Carry The Light](https://www.youtube.com/watch?v=TKh1VuMBEf0)
 
 ## Level 1 Demon Lord and One Room Hero:
@@ -947,6 +960,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Shura Diary](https://www.youtube.com/watch?v=P6PQjxYn4ds)
 
+## Once Upon a Witch's Death:
+
+1. [Drops](https://www.youtube.com/watch?v=hsIZ_XiybQ4)
+
 ## Otaku Elf:
 
 1. [Strange Romance](https://www.youtube.com/watch?v=c8mJrbYdMWw)
@@ -1018,6 +1035,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Shangri-La Frontier:
 
 1. [Broken Games](https://www.youtube.com/watch?v=X_YHXdCcmVc)
+2. [Queen](https://www.youtube.com/watch?v=AQjgrYWc_zU)
 
 ## Shy:
 
@@ -1210,6 +1228,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## X:
 
 1. [eX Dream](https://www.youtube.com/watch?v=itsM7ljhBCs)
+
+## Yandere Dark Elf: She Chased Me All the Way From Another World!:
+
+1. [Heavy Love](https://www.youtube.com/watch?v=c9cprBeQ-bo)
 
 ## Yakuza Fiancé: Raise wa Tanin ga Ii:
 
