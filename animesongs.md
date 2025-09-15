@@ -1188,6 +1188,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Glorious Moment!](https://www.youtube.com/watch?v=SPwn8i-PXQA)
 
+### Uma Musume: Cinderella Gray:
+
+1. [Transcending](https://www.youtube.com/watch?v=5kYqii4WbNE)
+
 ## Undead Girl Murder Farce:
 
 1. [Crack-Crack-Crackle](https://www.youtube.com/watch?v=3x2QN_blm5A)
