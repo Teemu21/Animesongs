@@ -621,6 +621,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Anti World](https://www.youtube.com/watch?v=2DHmEaULN24)
 2. [Baddest](https://www.youtube.com/watch?v=rNGNU7Cvh5Y)
 
+## I’m The Evil Lord of an Intergalactic Empire!:
+
+1. [Cosmic Mystery](https://www.youtube.com/watch?v=JJkeGRUjlXo)
+
 ## I'm The Villainess, So I'm Taming The Final Boss:
 
 1. [You Don't Have To Be Sympathetic](https://www.youtube.com/watch?v=oXlEEXws3gc)
@@ -1014,6 +1018,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [I'm Obsessed With Roses](https://www.youtube.com/watch?v=tqm6cVPG0jU)
 
+## Rock Is a Lady's Modesty:
+
+1. [Ready To Rock](https://www.youtube.com/watch?v=B6RXU9PBjFU)
+
 ## Romantic Killer:
 
 1. [ROMA☆KiRA](https://www.youtube.com/watch?v=Mw6dMoIRMgI)
@@ -1052,6 +1060,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Steins;Gate:
 
 1. [Hacking To The Gate](https://www.youtube.com/watch?v=SBQprWeOx8g)
+
+## Summer Pockets:
+
+1. [Alkatale](https://www.youtube.com/watch?v=s8zVVt8cFvI)
+2. [Finisteller](https://www.youtube.com/watch?v=Xv2dZtxftgQ)
 
 ## Sword Art Online:
 
@@ -1257,6 +1270,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Yuri Is My Job:
 
 1. [Secret♡Melody](https://www.youtube.com/watch?v=u9KcPfDiK2k)
+
+## Zatsu Tabi: That's Journey:
+
+1. [Let's Go on a Trip! Don't You?](https://www.youtube.com/watch?v=_jf8TPYViEk)
 
 ## Zenshu:
 
