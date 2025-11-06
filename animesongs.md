@@ -462,6 +462,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Nero](https://www.youtube.com/watch?v=WLal0cZGbdc)
 2. [Scrap Art](https://www.youtube.com/watch?v=iQictdIl1xk)
 
+## DearS:
+
+1. [Love Slave](https://www.youtube.com/watch?v=MVR6Z-ZSxdQ)
+
 ## Death Note:
 
 1. [The World](https://www.youtube.com/watch?v=RvIx-SJvlNY)
@@ -729,7 +733,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### The Galaxy Railways:
 
 1. [Galaxy Railways in Spring](https://www.youtube.com/watch?v=Xj2P8jACQXQ)
-2. [Carry The Light](https://www.youtube.com/watch?v=TKh1VuMBEf0)
+2. [Carry The Light](https://www.youtube.com/watch?v=Oxa4Sf7TWl8)
 
 ## Level 1 Demon Lord and One Room Hero:
 
@@ -1102,7 +1106,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
-1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=h3t6osnyPWI)
+1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=MGB7-eCvl_M)
 2. [Thanks for Being So Lovable](https://www.youtube.com/watch?v=Fhi9r_SNyBs)
 
 ## The Ancient Magus' Bride:
@@ -1166,7 +1170,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Quintuplets' Feelings](https://www.youtube.com/watch?v=T-3TJgbDmVI)
 2. [The Shape Of Quintuplets](https://www.youtube.com/watch?v=GYZ3qCEHCd4)
 3. [Quintuplets' Future](https://www.youtube.com/watch?v=rG5I0poI43I)
-4. [Quintuplets' Smiles](https://www.youtube.com/watch?v=6Mn16GY9Syw)
+4. [Quintuplets' Smiles](https://www.youtube.com/watch?v=qOiOpKwnJlc)
 
 ## The Vexations of a Shut-In Vampire Princess:
 
