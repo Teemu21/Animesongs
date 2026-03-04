@@ -35,7 +35,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## 2.5D Seduction:
 
 1. [Shutter Chance](https://www.youtube.com/watch?v=4TjLfVLUwp4)
-2. [A Wing's Patchwork](https://www.youtube.com/watch?v=0Pig3PWgV08)
+2. [A Wing's Patchwork](https://www.youtube.com/watch?v=H5rntYkEUZc)
 
 ## 365 Days to the Wedding:
 
@@ -337,7 +337,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Blue Archive The Animation:
 
-1. [Archive Of Youth](https://www.youtube.com/watch?v=Um9JUFSFBy4)
+1. [Archive Of Youth](https://www.youtube.com/watch?v=6B3h889XR2E)
 
 ## Blue Comet SPT Layzner:
 
@@ -348,7 +348,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Core Pride](https://www.youtube.com/watch?v=fSks0H1wcqc)
 2. [In My World](https://www.youtube.com/watch?v=FYnyjFIlync)
 3. [A Drop of Influence](https://www.youtube.com/watch?v=Q8DpaJ3zYjA)
-4. [Eye's Sentry](https://www.youtube.com/watch?v=uIVmvlgm5Jo)
+4. [Eye's Sentry](https://www.youtube.com/watch?v=GtxH1VLTb-w)
 5. [Re: Rescue](https://www.youtube.com/watch?v=aYz7w9Yl7eI)
 
 ## Blue Gender:
@@ -962,7 +962,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## No Longer Allowed in Another World:
 
-1. [Shura Diary](https://www.youtube.com/watch?v=P6PQjxYn4ds)
+1. [Shura Diary](https://www.youtube.com/watch?v=qvgi5Usecgw)
 
 ## Once Upon a Witch's Death:
 
@@ -992,7 +992,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Pseudo Harem:
 
-1. [Blouse](https://www.youtube.com/watch?v=OIP9ljYgWM4)
+1. [Blouse](https://www.youtube.com/watch?v=QoYo3b_6upQ)
 
 ## Psycho-Pass:
 
@@ -1122,7 +1122,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The Elusive Samurai:
 
-1. [Plan A](https://www.youtube.com/watch?v=XEvK7h-nsVc)
+1. [Plan A](https://www.youtube.com/watch?v=vi5oPfqnKHc)
 
 ## The Foolish Angel Dances with the Devil:
 
