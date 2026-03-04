@@ -10,10 +10,6 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Songs by Series/Franchise in Alphabetical Order:
 
-## [Oshi No Ko[:
-
-1. [Idol](https://www.youtube.com/watch?v=JxvvUblf25A)
-2. [Fatal](https://www.youtube.com/watch?v=4u2Ywmfx3Ek)
 
 ## .hack//:
 
@@ -410,7 +406,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## C: The Money of Soul and Possibility Control:
 
-1. [Matryoshka](https://www.youtube.com/watch?v=PCZ0Pr8OQJs)
+1. [Matryoshka](https://www.youtube.com/watch?v=70iKWXaL_Ws)
 
 ## Can a Boy-Girl Friendship Survive?:
 
@@ -958,7 +954,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
  
 ## Neon Genesis Evangelion:
 
-1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=LDqcGXTGhGM)
+1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=o6wtDPVkKqI)
 
 ## Night Head 2041:
 
@@ -1106,7 +1102,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
-1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=MGB7-eCvl_M)
+1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=uS4TUKNoQxk)
 2. [Thanks for Being So Lovable](https://www.youtube.com/watch?v=Fhi9r_SNyBs)
 
 ## The Ancient Magus' Bride:
@@ -1161,6 +1157,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Fortune Comes To A Worried House](https://www.youtube.com/watch?v=2x9AtqOJCvY)
 
+## The Mononoke Lecture Logs of Chuzenji-sensei: He Just Solves All the Mysteries:
+
+1. [She Is Now In The Labyrinth](https://www.youtube.com/watch?v=gC6-SgdAMhI)
+
 ## The Most Notorious "Talker" Runs the World's Greatest Clan:
 
 1. [Tactics](https://www.youtube.com/watch?v=1ivXMMdzxSc)
@@ -1171,6 +1171,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 2. [The Shape Of Quintuplets](https://www.youtube.com/watch?v=GYZ3qCEHCd4)
 3. [Quintuplets' Future](https://www.youtube.com/watch?v=rG5I0poI43I)
 4. [Quintuplets' Smiles](https://www.youtube.com/watch?v=qOiOpKwnJlc)
+
+## The Shiunji Family Children:
+
+1. [Honey Lemon](https://www.youtube.com/watch?v=YU_nj63Pm_Q)
 
 ## The Vexations of a Shut-In Vampire Princess:
 
@@ -1193,21 +1197,21 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Softly in Love -May We Always Be Us](https://www.youtube.com/watch?v=WUVj69N68Xc)
 2. [Pray Pray Pray](https://www.youtube.com/watch?v=3FhVAfwpdQk)
 
-## Uma Musume:
+## Umamusume:
 
-### Uma Musume: Pretty Derby:
+### Umamusume: Pretty Derby:
 
 1. [Make Debut!](https://www.youtube.com/watch?v=aT34-Ctxf_M)
 2. [Run for Our Dreams!](https://www.youtube.com/watch?v=OoI_bCNVORQ)
 3. [Be Their Beloved](https://www.youtube.com/watch?v=RlIVwRYUMhA)
 
-### Uma Musume: Pretty Derby - Road to the Top:
+### Umamusume: Pretty Derby - Road to the Top:
 
 1. [Glorious Moment!](https://www.youtube.com/watch?v=SPwn8i-PXQA)
 
-### Uma Musume: Cinderella Gray:
+### Umamusume: Cinderella Gray:
 
-1. [Transcending](https://www.youtube.com/watch?v=5kYqii4WbNE)
+1. [Transcending](https://www.youtube.com/watch?v=a9n28l2JMAk)
 
 ## Undead Girl Murder Farce:
 
@@ -1266,6 +1270,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Out of Sync](https://www.youtube.com/watch?v=R6fQrQUSfjc)
 
+## Your Forma:
+
+1. [Gridout](https://www.youtube.com/watch?v=1VoCX1ZVik8)
+
 ## YU-NO: A Girl Who Chants Love at the Bound of This World:
 
 1. [A Girl Who Chants Love at the Bound of This World](https://www.youtube.com/watch?v=E72ivJl0JcY)
@@ -1282,3 +1290,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Zenshu:
 
 1. [Zen](https://www.youtube.com/watch?v=iRjRX1V_3go)
+
+## [Oshi No Ko[:
+
+1. [Idol](https://www.youtube.com/watch?v=JxvvUblf25A)
+2. [Fatal](https://www.youtube.com/watch?v=4u2Ywmfx3Ek)
