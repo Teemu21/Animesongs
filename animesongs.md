@@ -653,6 +653,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Where Our Blue Is](https://www.youtube.com/watch?v=2c_lHmkOq0E)
 4. [Specialz](https://www.youtube.com/watch?v=0XCm-Z9KFyE)
 
+## K-On:
+
+1. [Cagayake! Girls](https://www.youtube.com/watch?v=FUS7v7e5DLg)
+2. [Go! Go! Maniac](https://www.youtube.com/watch?v=Kecl-SomNwg)
+
 ## KamiErabi GOD.app:
 
 1. [Scrap & Build](https://www.youtube.com/watch?v=OK1b-lifhBo)
@@ -1100,6 +1105,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Tasokare](https://www.youtube.com/watch?v=vDy_V3i1YpE)
 
+## Teogonia:
+
+1. [Impulse](https://www.youtube.com/watch?v=KBOHWiMk790)
+
 ## The 100 Girlfriends Who Really, Really, Really, Really, Really Love You:
 
 1. [To You Who I Really, Really, Really, Really, Really Love](https://www.youtube.com/watch?v=uS4TUKNoQxk)
@@ -1115,6 +1124,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Blue Wolves of Mibu:
 
 1. [Blue](https://www.youtube.com/watch?v=Zh8xiGagKSA)
+
+## The Brilliant Healer's New Life in the Shadows:
+
+1. [Light Maker](https://www.youtube.com/watch?v=bh6pwWW6u5w)
 
 ## The Daily Life of a Middle-Aged Online Shopper in Another World:
 
@@ -1295,3 +1308,5 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Idol](https://www.youtube.com/watch?v=JxvvUblf25A)
 2. [Fatal](https://www.youtube.com/watch?v=4u2Ywmfx3Ek)
+3. [Test Me](https://www.youtube.com/watch?v=pV2jS9dGbzw)
+
