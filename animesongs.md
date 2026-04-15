@@ -733,7 +733,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### The Galaxy Railways:
 
-1. [Galaxy Railways in Spring](https://www.youtube.com/watch?v=Xj2P8jACQXQ)
+1. [Galaxy Railways in Spring](https://www.youtube.com/watch?v=geZyBs3wp9M)
 2. [Carry The Light](https://www.youtube.com/watch?v=Oxa4Sf7TWl8)
 
 ## Level 1 Demon Lord and One Room Hero:
@@ -776,6 +776,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Metallic Rouge:
 
 1. [Rouge](https://www.youtube.com/watch?v=ipi0gIIe9ks)
+
+## Miru: Paths to My Future:
+
+1. [Love Song](https://www.youtube.com/watch?v=Ip07PNL7GAM)
 
 ## Mission: Yozakura Family:
 
@@ -887,6 +891,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Plazma](https://www.youtube.com/watch?v=OH5--LRqnmM)
 
+## Mono:
+
+1. [Many Merry Memories!](https://www.youtube.com/watch?v=T2gcoujmcKo)
+
 ## Monogatari Series:
 
 ### Nekomonogatari Black:
@@ -968,6 +976,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## No Longer Allowed in Another World:
 
 1. [Shura Diary](https://www.youtube.com/watch?v=qvgi5Usecgw)
+
+## Nukitashi The Animation:
+
+1. [Utopia or Dystopia](https://www.youtube.com/watch?v=kYKtRzzn6uE)
 
 ## Once Upon a Witch's Death:
 
