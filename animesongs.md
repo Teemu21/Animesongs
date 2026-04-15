@@ -677,7 +677,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### KonoSuba: God's Blessing on This Wonderful World!:
 
 1. [Fantastic Dreamer](https://www.youtube.com/watch?v=uEj8DaXWnvE)
-2. [Tomorrow](https://www.youtube.com/watch?v=a5E4_uFYFJ0)
+2. [Tomorrow](https://www.youtube.com/watch?v=Cqp-dB7GVI8)
 3. [Growing Up](https://www.youtube.com/watch?v=DfjAGqcdg6o)
 
 ### KonoSuba: An Explosion on This Wonderful World!:
