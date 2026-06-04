@@ -185,8 +185,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Arknights:
 
-1. [Alive](https://www.youtube.com/watch?v=2hdNsQK4A8g)
-3. [End of Days](https://www.youtube.com/watch?v=xYCvpdigzUA)
+1\. [Alive](https://www.youtube.com/watch?v=2hdNsQK4A8g)<br>
+3\. [End of Days](https://www.youtube.com/watch?v=xYCvpdigzUA)
 
 ## Arpeggio of Blue Steel -Ars Nova-:
 
@@ -250,9 +250,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Beelzebub:
 
-2. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)
-3. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)
-5. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
+2\. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)<br>
+3\. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)<br>
+5\. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
 
 ## Beheneko: The Elf-Girl's Cat is Secretly an S-Ranked Monster!:
 
@@ -447,10 +447,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Code Geass:
 
-1. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)
-2. [Impossible to Decipher](https://www.youtube.com/watch?v=6sLZCJTh9dY)
-3. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)
-5. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
+1\. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)<br>
+2\. [Impossible to Decipher](https://www.youtube.com/watch?v=6sLZCJTh9dY)<br>
+3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
+5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
 
 ## Comic Party:
 
@@ -942,9 +942,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Monogatari Series Season 2:
 
-1. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)
-2. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)
-4. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
+1\. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)<br>
+2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
+4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
 
 ### Owarimonogatari:
 
