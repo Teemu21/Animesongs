@@ -51,6 +51,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [3 min 29 sec](https://www.youtube.com/watch?v=6TlcIC0qKN0)
 2. [Borderline](https://www.youtube.com/watch?v=CKwv2kqz8_Q)
 
+## 9-nine- Ruler’s Crown:
+
+1. [ResoNAnce](https://www.youtube.com/watch?v=90R9312i5qY)
+
 ## Accel World:
 
 1. [Chase The World](https://www.youtube.com/watch?v=f9iyz6BEODs)
@@ -156,6 +160,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [A Love I Can't Understand](https://www.youtube.com/watch?v=8QiuPPc8px4)
 
+## And You Thought There Is Never a Girl Online?:
+
+1. [1st Love Story](https://www.youtube.com/watch?v=L1noi-zUL04)
+
 ## Angel Beats!:
 
 1. [My Soul, Your Beats!](https://www.youtube.com/watch?v=zIFV8UUs1-c)
@@ -175,9 +183,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Unending Wish](https://www.youtube.com/watch?v=DItBdUlrBuA)
 4. [Compass](https://www.youtube.com/watch?v=g6XMgh04z9A)
 
-## Arknights: Prelude To Dawn:
+## Arknights:
 
 1. [Alive](https://www.youtube.com/watch?v=2hdNsQK4A8g)
+3. [End of Days](https://www.youtube.com/watch?v=xYCvpdigzUA)
 
 ## Arpeggio of Blue Steel -Ars Nova-:
 
@@ -241,9 +250,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Beelzebub:
 
-2\. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)<br>
-3\. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)<br>
-5\. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
+2. [The Beginning is, Goodbye](https://www.youtube.com/watch?v=YGSnQwfg6tk)
+3. [Hey!!!](https://www.youtube.com/watch?v=pNlJmqnD3W0)
+5. [Only You -Bonds With You-](https://www.youtube.com/watch?v=yYJCxmBdAqM)
 
 ## Beheneko: The Elf-Girl's Cat is Secretly an S-Ranked Monster!:
 
@@ -258,7 +267,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Berserk 2016/17:
 
 1. [Inferno](https://www.youtube.com/watch?v=O5RHkSKK4Dk)
-2. [Sacrifice](https://www.youtube.com/watch?v=kM9__x5Bd8c)
+2. [Sacrifice](https://www.youtube.com/watch?v=y4k6IvZyWyw)
 
 ## Berserk Of Gluttony:
 
@@ -416,6 +425,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Now Loading...Sky!!](https://www.youtube.com/watch?v=peChxGrXEFY)
 
+## Cat's Eye (2025):
+
+1. [Magic](https://www.youtube.com/watch?v=yVlDQ_X1_UE)
+
 ## Chained Soldier:
 
 1. [Dream Thread](https://www.youtube.com/watch?v=rjDvy-M3Y_E)
@@ -434,10 +447,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Code Geass:
 
-1\. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)<br>
-2\. [Impossible to Decipher](https://www.youtube.com/watch?v=6sLZCJTh9dY)<br>
-3\. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)<br>
-5\. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
+1. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)
+2. [Impossible to Decipher](https://www.youtube.com/watch?v=6sLZCJTh9dY)
+3. [Flight of Wings](https://www.youtube.com/watch?v=F-BgKPZIkNE)
+5. [World's End](https://www.youtube.com/watch?v=aoFr6V1tY8I)
 
 ## Comic Party:
 
@@ -448,6 +461,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ### Comic Party Revolution:
 
 1. [Fly](https://www.youtube.com/watch?v=_qw9LXK4mCw)
+
+## Cultural Exchange with a Game Centre Girl:
+
+1. [Their Start Button](https://www.youtube.com/watch?v=diwTllqWl0Q)
 
 ## Dark Gathering:
 
@@ -465,6 +482,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Death Note:
 
 1. [The World](https://www.youtube.com/watch?v=RvIx-SJvlNY)
+
+## Dekin no Mogura: The Earthbound Mole:
+
+1. [Plea To God](https://www.youtube.com/watch?v=EgUzV4bQMtI)
 
 ## Demon Lord 2099:
 
@@ -603,6 +624,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Hokkaido Gals Are Super Adorable!:
 
 1. [Super Adorable Gal](https://www.youtube.com/watch?v=n3nGkvlf0sU)
+
+## Hotel Inhumans:
+
+1. [Mister Moonlight](https://www.youtube.com/watch?v=MA0a1MSPdS8)
 
 ## I'm Getting Married to a Girl I Hate in My Class:
 
@@ -917,9 +942,9 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ### Monogatari Series Season 2:
 
-1\. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)<br>
-2\. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)<br>
-4\. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
+1. [Chocolate Insomnia](https://www.youtube.com/watch?v=4BP_NJ41bB8)
+2. [Happy Bite](https://www.youtube.com/watch?v=461ON5K7AQI)
+4. [Fast Love](https://www.youtube.com/watch?v=1bKj_fYWY-g)
 
 ### Owarimonogatari:
 
@@ -1003,6 +1028,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Dive In The Sky](https://www.youtube.com/watch?v=nC6BX5niR5I)
 
+## Private Tutor to the Duke's Daughter:
+
+1. [Wish For You](https://www.youtube.com/watch?v=Q1bl_f_Qskc)
+
 ## Please Put Them On, Takamine-san:
 
 1. [Baby Baby Baby](https://www.youtube.com/watch?v=WAMgEHN1Dnk)
@@ -1042,6 +1071,14 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Romantic Killer:
 
 1. [ROMA☆KiRA](https://www.youtube.com/watch?v=Mw6dMoIRMgI)
+
+## Ruri Rocks:
+
+1. [Where The Light Dwells](https://www.youtube.com/watch?v=A5nmQ2u3ep0)
+
+## See You Tomorrow at the Food Court:
+
+1. [Young Glow](https://www.youtube.com/watch?v=N_dm1ZzdCjw)
 
 ## Sengoku Youko:
 
@@ -1133,6 +1170,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 3. [Dear](https://www.youtube.com/watch?v=rPxKKC_GI2Q)
 4. [Lineage Put To Sleep](https://www.youtube.com/watch?v=KXnbJj6wCIo)
 
+## The Apocalypse Bringer Mynoghra:
+
+1. [Majestic Catastrophe](https://www.youtube.com/watch?v=Iobyh33FdBA)
+
 ## The Blue Wolves of Mibu:
 
 1. [Blue](https://www.youtube.com/watch?v=Zh8xiGagKSA)
@@ -1161,6 +1202,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 2. [Swirl and Swirl](https://www.youtube.com/watch?v=Q9tLZbFSQVk)
 3. [Wings](https://www.youtube.com/watch?v=X708ByP_7yI) 
+
+## The Hill Dyed Rose Madder:
+
+1. [First Love Parachute](https://www.youtube.com/watch?v=WQyCD0ZloeY)
 
 ## The Kawai Complex Guide to Manors and Hostel Behavior:
 
@@ -1201,6 +1246,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Honey Lemon](https://www.youtube.com/watch?v=YU_nj63Pm_Q)
 
+## The Shy Hero and the Assassin Princesses:
+
+1. [Tenden Barabara](https://www.youtube.com/watch?v=q998CIH1QnM)
+
 ## The Vexations of a Shut-In Vampire Princess:
 
 1. [Red Liberation](https://www.youtube.com/watch?v=d62GvsOTaio)
@@ -1221,6 +1270,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Softly in Love -May We Always Be Us](https://www.youtube.com/watch?v=WUVj69N68Xc)
 2. [Pray Pray Pray](https://www.youtube.com/watch?v=3FhVAfwpdQk)
+
+## Uglymug, Epicfighter:
+
+1. [My Way](https://www.youtube.com/watch?v=dab4K6HqzNo)
 
 ## Umamusume:
 
@@ -1270,6 +1323,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Welcome to Japan, Ms. Elf!:
 
 1. [Palette Days](https://www.youtube.com/watch?v=qifbo1Vqae0)
+
+## With Vengeance, Sincerely, Your Broken Saintess:
+
+1. [Dizzy](https://www.youtube.com/watch?v=lh9-RF67G7o)
 
 ## Why Does Nobody Remember Me in This World?:
 
