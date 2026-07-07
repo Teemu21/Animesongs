@@ -451,7 +451,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Clevatess:
 
-1. [Ruler](https://www.youtube.com/watch?v=TnJng3wJ1hY)
+1. [Ruler](https://www.youtube.com/watch?v=XVsff2jGc_4)
 
 ## Code Geass:
 
