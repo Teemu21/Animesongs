@@ -229,6 +229,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Graphite/Diamond](https://www.youtube.com/watch?v=rdGcU1oojiw)
 
+## Bad Girl:
+
+1. [Super Big Love!](https://www.youtube.com/watch?v=TnJng3wJ1hY)
+
 ## Baka & Test - Summon the Beasts:
 
 ### Baka & Test - Summon the Beasts:
@@ -291,7 +295,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 6. [Graffiti Page](https://www.youtube.com/watch?v=KGZHMLtcQ1U)
 7. [Just A Dice](https://www.youtube.com/watch?v=xcmeWWbP1ek)
 8. [Sky & Blue](https://www.youtube.com/watch?v=JRJk8xVezgM)
-9. [Right Now](https://www.youtube.com/watch?v=14q0Lyd5hOs)
+9. [Right Now](https://www.youtube.com/watch?v=iJKxB_Jii4M)
 10. [Black Catcher](https://www.youtube.com/watch?v=OatfuWxYJfw) 
 11. [Stories](https://www.youtube.com/watch?v=GrI4oLVHLas)
 12. [Everlasting Shine](https://www.youtube.com/watch?v=OrsnVw-qidw)
@@ -445,6 +449,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Bravely You](https://www.youtube.com/watch?v=ZlScoN57QCE)
 
+## Clevatess:
+
+1. [Ruler](https://www.youtube.com/watch?v=TnJng3wJ1hY)
+
 ## Code Geass:
 
 1\. [Colors](https://www.youtube.com/watch?v=zAksx-cqydo)<br>
@@ -580,7 +588,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Guilty Crown:
 
-1. [My Dearest](https://www.youtube.com/watch?v=ZPt9w-p6q9I)
+1. [My Dearest](https://www.youtube.com/watch?v=OcFbq8WGfZE)
 2. [The Everlasting Guilty Crown](https://www.youtube.com/watch?v=-p0IjnBhG10)
 
 ## Gushing Over Magical Girls:
@@ -687,6 +695,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Scrap & Build](https://www.youtube.com/watch?v=OK1b-lifhBo)
 2. [Weathering](https://www.youtube.com/watch?v=yUBiMCgivW8)
+
+## Kamitsubaki City Under Construction:
+
+1. [Diva](https://www.youtube.com/watch?v=sSNDspG_ojM)
 
 ## King's Raid: Successors of the Will:
 
@@ -994,6 +1006,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [A Cruel Angel's Thesis](https://www.youtube.com/watch?v=o6wtDPVkKqI)
 
+## New Saga:
+
+1. [Performer](https://www.youtube.com/watch?v=Nhzy4HmDLOE)
+
 ## Night Head 2041:
 
 1. [Icy Ivy](https://www.youtube.com/watch?v=2dpF7sV1Hp4) 
@@ -1005,6 +1021,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Nukitashi The Animation:
 
 1. [Utopia or Dystopia](https://www.youtube.com/watch?v=kYKtRzzn6uE)
+
+## Nyaight of the Living Cat:
+
+1. [Cat City](https://www.youtube.com/watch?v=kVzA-Kfa07U)
 
 ## Once Upon a Witch's Death:
 
@@ -1173,6 +1193,13 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## The Apocalypse Bringer Mynoghra:
 
 1. [Majestic Catastrophe](https://www.youtube.com/watch?v=Iobyh33FdBA)
+
+## The Apothecary Diaries:
+
+1. [Be A Flower](https://www.youtube.com/watch?v=UsJ7g988dSo)
+2. [Ambivalent](https://www.youtube.com/watch?v=o5iZ4UunCKg)
+3. [In Bloom](https://www.youtube.com/watch?v=nqF3zctHjs0)
+4. [Mysterious](https://www.youtube.com/watch?v=xvpeW9oYlhQ)
 
 ## The Blue Wolves of Mibu:
 
