@@ -688,8 +688,8 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## K-On:
 
-1. [Cagayake! Girls](https://www.youtube.com/watch?v=FUS7v7e5DLg)
-2. [Go! Go! Maniac](https://www.youtube.com/watch?v=Kecl-SomNwg)
+1. [Cagayake! Girls](https://www.youtube.com/watch?v=UzET2h0UKzE)
+2. [Go! Go! Maniac](https://www.youtube.com/watch?v=nNtdpbFbtEA)
 
 ## KamiErabi GOD.app:
 
@@ -1096,6 +1096,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Where The Light Dwells](https://www.youtube.com/watch?v=A5nmQ2u3ep0)
 
+## Sakamoto Days:
+
+2. [Method](https://www.youtube.com/watch?v=XCflhe7S42w)
+
 ## See You Tomorrow at the Food Court:
 
 1. [Young Glow](https://www.youtube.com/watch?v=N_dm1ZzdCjw)
@@ -1160,6 +1164,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Resolution](https://www.youtube.com/watch?v=nUtgOwCh2uY)
 2. [Anima](https://www.youtube.com/watch?v=GTpND3F48ZI)
+
+## Sword of the Demon Hunter: Kijin Gentōshō:
+
+1. [Continue](https://www.youtube.com/watch?v=CUvLLlmN2mg)
 
 ## Synduality: Noir:
 
@@ -1277,6 +1285,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Tenden Barabara](https://www.youtube.com/watch?v=q998CIH1QnM)
 
+## The Summer Hikaru Died:
+
+1. [Reunion](https://www.youtube.com/watch?v=UBL8Z5Qo8eI)
+
 ## The Vexations of a Shut-In Vampire Princess:
 
 1. [Red Liberation](https://www.youtube.com/watch?v=d62GvsOTaio)
@@ -1292,6 +1304,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Top Secret: The Revelation:
 
 1. [Film Of The Heart](https://www.youtube.com/watch?v=HaqACXA4oQU)
+
+## Turkey! Time to Strike:
+
+1. [Common Zinnia](https://www.youtube.com/watch?v=fFMXVCAIXCM)
 
 ## Tying the Knot with an Amagami Sister:
 
@@ -1350,6 +1366,11 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Welcome to Japan, Ms. Elf!:
 
 1. [Palette Days](https://www.youtube.com/watch?v=qifbo1Vqae0)
+
+## Witch Watch:
+
+1. [Watch Me!](https://www.youtube.com/watch?v=evtoG-4dLM4)
+2. [Unleash!](https://www.youtube.com/watch?v=a8wCVI4h94M)
 
 ## With Vengeance, Sincerely, Your Broken Saintess:
 
