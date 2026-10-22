@@ -202,7 +202,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## A Terrified Teacher at Ghoul School!:
 
-1. [Shrimp Turn!](https://www.youtube.com/watch?v=CP-pFGAuPJY)
+1. [Shrimp Turn!](https://www.youtube.com/watch?v=TCgAJCmP04w)
 2. [A Heart That Seems To Change](https://www.youtube.com/watch?v=FC2KjtggGD4)
 
 ## Atri: My Dear Moments:
@@ -371,7 +371,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Blue Seed:
 
 1. [Carnival Babel](https://www.youtube.com/watch?v=f8T9kkaGuVg)
-2. [Eternal Truth](https://www.youtube.com/watch?v=gbChshRYw2M)
+2. [Eternal Truth](https://www.youtube.com/watch?v=4hKYSLilHuM)
 
 ## Brain Powerd:
 
@@ -483,6 +483,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 1. [Nero](https://www.youtube.com/watch?v=WLal0cZGbdc)
 2. [Scrap Art](https://www.youtube.com/watch?v=iQictdIl1xk)
 
+## Dealing with Mikadono Sisters Is a Breeze:
+
+1. [A Miracle Fitting for You](https://www.youtube.com/watch?v=NT8vVZEUvLo)
+
 ## DearS:
 
 1. [Love Slave](https://www.youtube.com/watch?v=MVR6Z-ZSxdQ)
@@ -501,7 +505,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Demon Lord Dante:
 
-1. [Release Your Mind](https://www.youtube.com/watch?v=pKJMOfrwK_Q)
+1. [Release Your Mind](https://www.youtube.com/watch?v=15agp-uW-zQ)
 
 ## Digimon Tri Movies:
 
@@ -699,6 +703,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 ## Kamitsubaki City Under Construction:
 
 1. [Diva](https://www.youtube.com/watch?v=sSNDspG_ojM)
+
+## KimiKiss:
+
+1. [Blue Sky Loop](https://www.youtube.com/watch?v=Frv5Ha1-2E8)
 
 ## King's Raid: Successors of the Will:
 
@@ -1229,6 +1237,10 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 1. [Otowa](https://www.youtube.com/watch?v=ls2I7Idc4LY)
 
+## The Fragrant Flower Blooms with Dignity:
+
+1. [Your Gaze, Crepuscular](https://www.youtube.com/watch?v=ESmFEjRurns)
+
 ## The Gene of AI:
 
 1. [No Frontier](https://www.youtube.com/watch?v=s85OgKqP3eQ)
@@ -1316,7 +1328,7 @@ Here's also the anime song list which will be covered in this document: [Anime S
 
 ## Uglymug, Epicfighter:
 
-1. [My Way](https://www.youtube.com/watch?v=dab4K6HqzNo)
+1. [My Way](https://www.youtube.com/watch?v=Kg8xUeTZ2YQ)
 
 ## Umamusume:
 
